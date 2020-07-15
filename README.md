@@ -1,4 +1,4 @@
-### Hi there, I'm [RAVANA!](https://t.me/r4v4n4) 👋.  <img src="https://raw.githubusercontent.com/ravana69/8bithemant/master/svg/pronouns/hehim.svg" >
+### Hi there, I'm [RAVANA!](https://t.me/r4v4n4) 👋.  <img src="https://raw.githubusercontent.com/ravana69/ravana69/master/svg/pronouns/hehim.svg" >
 
 
 <br/>
