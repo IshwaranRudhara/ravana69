@@ -9,7 +9,7 @@
 
 <br />
 
-<img align="centre" height="270px" width="450px" alt="GIF" src="https://media.giphy.com/media/3og0IV7MOCfnm85iRa/giphy.gif"/>
+<img align="centre" height="480px" width="480px" alt="GIF" src="https://media.giphy.com/media/3og0IV7MOCfnm85iRa/giphy-downsized.gif" />
 <br />
 
 
