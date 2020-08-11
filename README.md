@@ -28,7 +28,7 @@
 
 <br />
 
-![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ravana69)
+![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ravana69&&show_icons=true&theme=radical)
 
 
 <br />
