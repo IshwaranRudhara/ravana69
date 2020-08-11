@@ -28,9 +28,10 @@
 
 <br />
 
+![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ravana69&hide=Jupyter%20Notebook&layout=compact)
 
 
-
+<br />
 
 
   
