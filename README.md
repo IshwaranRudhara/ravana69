@@ -3,7 +3,7 @@
 
 <br/>
 
-[![Alicia Sykes on GitHub](https://img.shields.io/github/followers/ravana69?label=ravana69&style=social)](https://github.com/ravana69)
+[![Me on GitHub](https://img.shields.io/github/followers/ravana69?label=ravana69&style=social)](https://github.com/ravana69)
 
 ![](https://visitor-badge.glitch.me/badge?page_id=ravana69)
 
