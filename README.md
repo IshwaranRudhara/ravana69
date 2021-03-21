@@ -9,7 +9,7 @@
 
 <br />
 
-<img align="centre" height="480px" width="480px" alt="GIF" src="https://media.giphy.com/media/3og0IV7MOCfnm85iRa/giphy-downsized.gif" />
+<img align="centre" height="480px" width="480px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/moh.gif" />
 <br />
 
 
