@@ -9,7 +9,7 @@
 
 <br />
 
-<img align="centre" height="480px" width="480px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/moh.gif" />
+<img align="centre" height="400px" width="480px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/moh.gif" />
 <br />
 
 
