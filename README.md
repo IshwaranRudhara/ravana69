@@ -11,7 +11,6 @@
 
 <img align="centre" height="400px" width="490px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/moh.gif" />
 <br />
-<img align="centre" height="400px" width="490px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/vaishagasandhye.mp4" />
 
 <br />
 
