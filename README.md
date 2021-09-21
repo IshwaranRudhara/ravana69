@@ -13,7 +13,7 @@
 
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ravana69&&show_icons=true&theme=radical)
 
-
+![STATS (THOPHES)](https://github-profile-trophy.vercel.app/?username=TruncatedDinosour&theme=gruvbox&margin-w=10&margin-h=15&column=8)
 <br />
 
 
