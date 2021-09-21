@@ -15,6 +15,16 @@
 
 ![STATS (THOPHES)](https://github-profile-trophy.vercel.app/?username=ravana69&theme=gruvbox&margin-w=10&margin-h=15&column=8)
 <br />
-
+<p align="left">
+    <a href="#">
+        <img width="20%" src="./assets/images/hand.gif" alt="" />
+    </a>
+    <a href="#">
+        <img width="59%" src="./assets/images/spacer.png" alt="" >
+    </a>
+    <a href="#">
+        <img width="20%" src="./assets/images/skull.gif" alt="" />
+    </a>
+</p>
 
   
