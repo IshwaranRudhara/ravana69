@@ -5,8 +5,15 @@
 <br />
 
 *************
-
-
+```
+Routine
+	title Routine for the day
+	section Everyday
+		Wake Up: 1: Use Telegram: 2: 
+		Goto Office: 3: Use Telegram: 5: Chai Time
+	section Come Home
+		Use Telegram: Sleeps: 1: Repeat
+```
 [![Me on GitHub](https://img.shields.io/github/followers/ravana69?label=ravana69&style=social)](https://github.com/ravana69)
 
 ![](https://visitor-badge.glitch.me/badge?page_id=ravana69)
