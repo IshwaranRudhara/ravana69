@@ -5,7 +5,18 @@
 <br />
 
 *************
+<H1>My Routine</H1>
 
+```mermaid
+  graph TD;
+      Wake-->Telegram;
+      Telegram-->Office;
+      Office-->Telegram;
+      Telegram-->Home;
+      Home-->Telegram;
+      Telegram-->Sleep;
+      Sleep-->Wake;
+```
 [![Me on GitHub](https://img.shields.io/github/followers/ravana69?label=ravana69&style=social)](https://github.com/ravana69)
 
 ![](https://visitor-badge.glitch.me/badge?page_id=ravana69)
