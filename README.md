@@ -1,4 +1,4 @@
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31rfzgmuvvewegdlxvlev4ynz4vu&cover_image=true&theme=default&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31rfzgmuvvewegdlxvlev4ynz4vu&cover_image=true&theme=default&bar_color=53b14f&bar_color_cover=true)](https://ravana69.github.io/rss)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&center=true&vCenter=true&multiline=true&height=81&lines=I+AM+RAVANA;CONTACT+ME+ON+TELEGRAM%3A+%40R4V4N4)](https://git.io/typing-svg)
 <img align="centre" height="400px" width="490px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/moh.gif" />
