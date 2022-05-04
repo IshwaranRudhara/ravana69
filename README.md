@@ -6,7 +6,8 @@
 ![Ravana Github Stats](https://github-readme-stats.vercel.app/api?username=ravana69&&show_icons=true&theme=radical)
 
 <br />
-
+<h3 align="center"> <a href="https://t.me/r4v4n4"><img src="https://profile-counter.glitch.me/ravana69/count.svg" alt="visitor" width="600"></a> </h3>
+</br>
 *************
 <H1>My Routine</H1>
 
