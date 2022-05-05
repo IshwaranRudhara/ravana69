@@ -21,10 +21,6 @@
       Telegram-->Sleep;
       Sleep-->Wake;
 ```
-[![Me on GitHub](https://img.shields.io/github/followers/ravana69?label=ravana69&style=social)](https://github.com/ravana69)
-
-![](https://visitor-badge.glitch.me/badge?page_id=ravana69)
-
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ravana69&&show_icons=true&theme=radical)
 
 ![STATS (THOPHES)](https://github-profile-trophy.vercel.app/?username=ravana69&theme=gruvbox&margin-w=10&margin-h=15&column=8)
