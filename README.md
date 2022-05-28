@@ -41,4 +41,5 @@
 
 
 ![Snake animation](https://github.com/Estevamsl/Estevamsl/blob/output/github-contribution-grid-snake.svg)
-[![github-readme-twitter]([https://github-readme-twitter.gazf.vercel.app/api?id=gazff](https://github-readme-twitter-gazf.vercel.app/api?id=OTTSandeep&layout=wide))](https://github.com/gazf/github-readme-twitter)
+
+[![github-readme-twitter](https://github-readme-twitter-gazf.vercel.app/api?id=OTTSandeep&layout=wide)](https://github.com/gazf/github-readme-twitter)
