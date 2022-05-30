@@ -1,8 +1,9 @@
+# Spotify Playlist
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31rfzgmuvvewegdlxvlev4ynz4vu&cover_image=true&theme=default&bar_color=53b14f&bar_color_cover=true)](https://ravana69.github.io/rss)
 </br>
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31rfzgmuvvewegdlxvlev4ynz4vu)
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&center=true&vCenter=true&multiline=true&height=81&lines=I+AM+RAVANA;CONTACT+ME+ON+TELEGRAM%3A+%40R4V4N4)](https://git.io/typing-svg)
-<img align="centre" height="400px" width="490px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/moh.gif" />
+<img align="centre" height="400px" width="490px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/rvm.gif" />
 ![Ravana Github Stats](https://github-readme-stats.vercel.app/api?username=ravana69&&show_icons=true&theme=radical)
 
 <br />
