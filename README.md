@@ -8,7 +8,7 @@
 - [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada + English] | 4K, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164302-doctor-strange-in-the-multiverse-of-madness-2022-web-dl-telugu-tamil-hindi-malayalam-kannada-english-4k-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=328670)
 <!-- BLOG-POST-LIST:END -->
 
-# =============Spotify Playlist=============
+# =====Spotify Playlist=====
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31rfzgmuvvewegdlxvlev4ynz4vu&cover_image=true&theme=default&bar_color=53b14f&bar_color_cover=true)](https://ravana69.github.io/rss)
 </br>
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31rfzgmuvvewegdlxvlev4ynz4vu)
