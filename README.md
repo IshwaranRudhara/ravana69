@@ -1,3 +1,13 @@
+### 📕 1tamilmv RSS Feed
+
+<!-- BLOG-POST-LIST:START -->
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=328673)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=328672)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=328671)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada + English] | 4K, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164302-doctor-strange-in-the-multiverse-of-madness-2022-web-dl-telugu-tamil-hindi-malayalam-kannada-english-4k-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=328670)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; 720p DSNP WEB-DL x265 &lpar;DD+ 5.1 – 192Kbps&rpar; [Tel + Tam + Hin + Eng] ==&gt; Direct Link](https://www.1tamilmv.cloud/index.php?/forums/topic/164301-doctor-strange-in-the-multiverse-of-madness-2022-720p-dsnp-web-dl-x265-dd-51-%E2%80%93-192kbps-tel-tam-hin-eng-direct-link/&do=findComment&comment=328669)
+<!-- BLOG-POST-LIST:END -->
+
 # =============Spotify Playlist=============
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31rfzgmuvvewegdlxvlev4ynz4vu&cover_image=true&theme=default&bar_color=53b14f&bar_color_cover=true)](https://ravana69.github.io/rss)
 </br>
@@ -42,5 +52,3 @@
 
 
 ![github contribution grid snake animation](https://raw.githubusercontent.com/ravana69/ravana69/output/github-contribution-grid-snake-dark.svg#gh-dark-mode-only)
-
-[![github-readme-twitter](https://github-readme-twitter-gazf.vercel.app/api?id=OTTSandeep&layout=wide)](https://github.com/gazf/github-readme-twitter)
