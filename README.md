@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [@Benzmovies - TENET &lpar;2020&rpar; 2160p &lpar;4K&rpar; HDR10 - Multi  Original Audios [Tamil + Telugu + Hindi + Eng] - ESubs Benz.mkv 18.2GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164363-benzmovies-tenet-2020-2160p-4k-hdr10-multi-original-audios-tamil-telugu-hindi-eng-%C2%A0esubs-benzmkv-182gb/&do=findComment&comment=328784)
+- [@Benzmovies - Kick &lpar;2009&rpar; Complete Blu-Ray AVC DD+5.1 Benz.zip 41.6GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164362-benzmovies-kick-2009-complete-blu-ray-avc-dd51-benzzip-416gb/&do=findComment&comment=328783)
+- [@Movieshola  Akhanda &lpar;2021&rpar; 2160p HQ SDR DSNP WEB-DL x265 [Telugu &lpar;DD+ 5.1 - 192Kbps &amp; AAC 2.0&rpar;] ESubs.mkv  23.5GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164361-movieshola-akhanda-2021-2160p-hq-sdr-dsnp-web-dl-x265-telugu-dd-51-192kbps-aac-20-esubsmkv-235gb/&do=findComment&comment=328782)
+- [@MoviesHola Ala Vaikunthapurramuloo &lpar;2020&rpar; 1080p HYBRID WEBDL HIN-TEL DDP.5.1 DD.2.0.mkv 5GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164360-movieshola-ala-vaikunthapurramuloo-2020-1080p-hybrid-webdl-hin-tel-ddp51-dd20mkv-5gb/&do=findComment&comment=328781)
 - [@Movieshola - Takkari Donga &lpar;2002&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - AAC - 2.0 - 5GB hola.mkv 5GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164359-movieshola-takkari-donga-2002-telugu-true-web-dl-1080p-avc-untouched-aac-20-5gb-holamkv-5gb/&do=findComment&comment=328780)
-- [@Benzmovies - K.G.F Chapter 1 &lpar;2018&rpar; 4K 2160p UHD x265 HEVC - ACC - AVC DD 5.1 - MultiAuds - [Tamil - Telugu - Hindi - Malayalam - Kannada] ESub 12.3GB -Benz.mkv 12.3GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164358-benzmovies-kgf-chapter-1-2018-4k-2160p-uhd-x265-hevc-acc-avc-dd-51-multiauds-tamil-telugu-hindi-malayalam-kannada-esub-123gb-benzmkv-123gb/&do=findComment&comment=328779)
-- [JIO Telugu Movies &lpar;2010 - 2015&rpar; UNTOUCHED WEB-DLs Collection 2 + &lpar;Dolby Digital® 5.1 - 192Kbps&rpar; - 78GB](https://www.1tamilmv.cloud/index.php?/forums/topic/105784-jio-telugu-movies-2010-2015-untouched-web-dls-collection-2-dolby-digital%C2%AE-51-192kbps-78gb/&do=findComment&comment=328778)
-- [@Benzmovies - Sarrainodu 2016 1080p JIO WEB-DL Telugu AAC2.0 H.264 Benz.mkv 8.8GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164357-benzmovies-sarrainodu-2016-1080p-jio-web-dl-telugu-aac20-h264-benzmkv-88gb/&do=findComment&comment=328777)
-- [@Benzmovies - RRR &lpar;2022&rpar; 2160p HQ ZEE5 WEB-DL x265 10bit [Telugu &lpar;DD+ 5.1 ATMOS - 448Kbps&rpar;] ESubs Benz.mkv 14GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164356-benzmovies-rrr-2022-2160p-hq-zee5-web-dl-x265-10bit-telugu-dd-51-atmos-448kbps-esubs-benzmkv-14gb/&do=findComment&comment=328776)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
