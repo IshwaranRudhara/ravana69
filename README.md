@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dc Comics Tamil Dubbed Collections](https://www.1tamilmv.cloud/index.php?/forums/topic/164383-dc-comics-tamil-dubbed-collections/&do=findComment&comment=328819)
+- [Mahabharat &lpar;1988&rpar; S01 EP &lpar;01-94&rpar;](https://www.1tamilmv.cloud/index.php?/forums/topic/164382-mahabharat-1988-s01-ep-01-94/&do=findComment&comment=328818)
 - [Obi-Wan Kenobi &lpar;2022&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Hindi + Malayalam + English&rpar; - 31.3GB - 7.4GB &amp; 3.4GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.cloud/index.php?/forums/topic/163126-obi-wan-kenobi-2022-s01-ep-01-06-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-malayalam-english-313gb-74gb-34gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=328817)
 - [Konda &lpar;2022&rpar; DVDScr Telugu Full Movie](https://www.1tamilmv.cloud/index.php?/forums/topic/164381-konda-2022-dvdscr-telugu-full-movie/&do=findComment&comment=328816)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328815)
-- [Vishnu &lpar;1995&rpar; Tamil Vijay Movie](https://www.1tamilmv.cloud/index.php?/forums/topic/164380-vishnu-1995-tamil-vijay-movie/&do=findComment&comment=328814)
-- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=328813)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
