@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Obi-Wan Kenobi &lpar;2022&rpar; Complete S01 [4k 2160p + 1080p +720p ]  HS WEB-DL &lpar;DD+5.1 192kbps Telugu+Tamil+Hindi+English&rpar; HEVC +AVC &lpar;DV+HDR+SDR&rpar; [42GB+10GB+14GB+8GB+4GB]](https://www.1tamilmv.cloud/index.php?/forums/topic/164353-obi-wan-kenobi-2022-complete-s01-4k-2160p-1080p-720p-hs-web-dl-dd51-192kbps-telugutamilhindienglish-hevc-avc-dvhdrsdr-42gb10gb14gb8gb4gb/&do=findComment&comment=328773)
+- [[60FPS|IMAX] - Doctor.Strange.in.the.Multiverse.of.Madness.2022.IMAX.10bit.DSNP.WEBRip.Multi.DDP5.1.Esubs.x265.HEVC - 1080p | 720p - 9.93 GB | 2.94 GB | 2.11 GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164352-60fpsimax-doctorstrangeinthemultiverseofmadness2022imax10bitdsnpwebripmultiddp51esubsx265hevc-1080p-720p-993-gb-294-gb-211-gb/&do=findComment&comment=328772)
 - [Suzhal The Vortex &lpar;2022&rpar; S01 [ 4k 2160p HDR&amp;SDR + 1080p + 720p] HEVC DDP5.1-640kbps [Telugu+Tamil+Hindi+English+Malayalam]ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164040-suzhal-the-vortex-2022-s01-4k-2160p-hdrsdr-1080p-720p-hevc-ddp51-640kbps-telugutamilhindienglishmalayalamesubs/&do=findComment&comment=328771)
 - [14 Tamil Movies 4k - 2160p UHD - HDR &amp; SDR - [Tam + Hin &lpar;DD5.1 &amp; ATMOS&rpar;] -17GB to 4GB - &lpar;170GB&rpar; ESub ~ Immortal Encodes 🔰 ATMOS - GDRIVE 🔰](https://www.1tamilmv.cloud/index.php?/forums/topic/152640-14-tamil-movies-4k-2160p-uhd-hdr-sdr-tam-hin-dd51-atmos-17gb-to-4gb-170gb-esub-~-immortal-encodes-%F0%9F%94%B0-atmos-gdrive-%F0%9F%94%B0/&do=findComment&comment=328770)
 - [Purushothama &lpar;2022&rpar; Kannada Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164351-purushothama-2022-kannada-full-movie-watch-now-hq-for-free/&do=findComment&comment=328769)
-- [Nenjuku Needhi &lpar;2022&rpar; [Tam + Tel + Mal + Kan] Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164350-nenjuku-needhi-2022-tam-tel-mal-kan-full-movie-watch-now-hq-for-free/&do=findComment&comment=328768)
-- [New Life &lpar;2022&rpar; S01 EP &lpar;01-05&rpar; 720p DSNP WEB-DL x264 &lpar;AAC 2.0 - 128Kbps&rpar; [Tel + Tam + Hin + Tur] ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164349-new-life-2022-s01-ep-01-05-720p-dsnp-web-dl-x264-aac-20-128kbps-tel-tam-hin-tur-esubs/&do=findComment&comment=328767)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
