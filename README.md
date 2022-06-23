@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328815)
+- [Vishnu &lpar;1995&rpar; Tamil Vijay Movie](https://www.1tamilmv.cloud/index.php?/forums/topic/164380-vishnu-1995-tamil-vijay-movie/&do=findComment&comment=328814)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=328813)
+- [Surya Vs Surya &lpar;2015&rpar; Telugu HOTSTAR WEB-DL - [1080p-4GB / 720p-1.7GB / 360p-750MB / 240p-400MB] - AVC - AAC - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164379-surya-vs-surya-2015-telugu-hotstar-web-dl-1080p-4gb-720p-17gb-360p-750mb-240p-400mb-avc-aac-gdrive/&do=findComment&comment=328812)
 - [The Last Airbender  &lpar;2010&rpar; BluRay - Multi Audios [Hindi-Tamil-Telugu - English] - [1080p 9GB 3GB] [720p 900MB] [480p 450MB] - ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164378-the-last-airbender-2010-bluray-multi-audios-hindi-tamil-telugu-english-1080p-9gb-3gb-720p-900mb-480p-450mb-esubs/&do=findComment&comment=328811)
-- [Rangi Taranga &lpar;2015&rpar; Kannada SUNNXT WEB-DL - [1080p-4GB / 720p-2GB / 360p-750MB] - AVC - DD+5.1 - 192kbps &amp; AAC - Esubs - Requested - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164377-rangi-taranga-2015-kannada-sunnxt-web-dl-1080p-4gb-720p-2gb-360p-750mb-avc-dd51-192kbps-aac-esubs-requested-gdrive/&do=findComment&comment=328810)
-- [Rangi Taranga &lpar;2015&rpar; Kannada SUNNXT WEB-DL - [1080p-4GB / 720p-2GB / 360p-750MB] - AVC - DD+5.1 - 192kbps &amp; AAC - Esubs - Requested - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164377-rangi-taranga-2015-kannada-sunnxt-web-dl-1080p-4gb-720p-2gb-360p-750mb-avc-dd51-192kbps-aac-esubs-requested-gdrive/&do=findComment&comment=328809)
-- [Konda &lpar;2022&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cloud/index.php?/forums/topic/164376-konda-2022-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=328808)
-- [Tomorrow &lpar;June 24&rpar; OTT Release Movies &amp; Theatrical Release Movies List | Television Premiere Movies](https://www.1tamilmv.cloud/index.php?/forums/topic/164375-tomorrow-june-24-ott-release-movies-theatrical-release-movies-list-television-premiere-movies/&do=findComment&comment=328807)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
