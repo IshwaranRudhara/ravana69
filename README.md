@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Oh My Dog &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164394-oh-my-dog-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-320kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=328835)
-- [@Benzmovies - TENET &lpar;2020&rpar; 2160p &lpar;4K&rpar; HDR10 - Multi  Original Audios [Tamil + Telugu + Hindi + Eng] - ESubs Benz.mkv 18.2GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164363-benzmovies-tenet-2020-2160p-4k-hdr10-multi-original-audios-tamil-telugu-hindi-eng-%C2%A0esubs-benzmkv-182gb/&do=findComment&comment=328834)
-- [Mahabharat &lpar;1988&rpar; S01 EP &lpar;01-94&rpar; 480p BDRip x265 10Bit AC3 &lpar;224Kbps&rpar; [ Hindi + Tamil + Telugu ] Esub 60GB [Major]](https://www.1tamilmv.cloud/index.php?/forums/topic/129540-mahabharat-1988-s01-ep-01-94-480p-bdrip-x265-10bit-ac3-224kbps-hindi-tamil-telugu-esub%C2%A060gb-major/&do=findComment&comment=328833)
-- [ADIRINDHI [Mersel] &lpar;2017&rpar; - Complete Music Video Album - TRUE [4K-ULTRA] - WEBM - 1.4GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164393-adirindhi-mersel-2017-complete-music-video-album-true-4k-ultra-webm-14gb/&do=findComment&comment=328832)
-- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=328831)
+- [Forensic &lpar;2022&rpar; Hindi Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164401-forensic-2022-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=328846)
+- [Manmatha Leela &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164400-manmatha-leela-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=328845)
+- [Pelli SandaD &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164399-pelli-sandad-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=328844)
+- [Meri Awas Suno &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164398-meri-awas-suno-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=328843)
+- [Recce &lpar;2022&rpar; S01 EP&lpar;01-07&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 10.7GB - 4GB &amp; 1.5GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.cloud/index.php?/forums/topic/164109-recce-2022-s01-ep01-07-telugu-true-web-dl-4k-1080p-720p-hevc-avc-107gb-4gb-15gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=328842)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
