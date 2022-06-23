@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Suzhal The Vortex &lpar;2022&rpar; S01 [ 4k 2160p HDR&amp;SDR + 1080p + 720p] HEVC DDP5.1-640kbps [Telugu+Tamil+Hindi+English+Malayalam]ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164040-suzhal-the-vortex-2022-s01-4k-2160p-hdrsdr-1080p-720p-hevc-ddp51-640kbps-telugutamilhindienglishmalayalamesubs/&do=findComment&comment=328763)
-- [Nenjuku Needhi &lpar;2022&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 3.3GB - GDRIVE](https://www.1tamilmv.cloud/index.php?/forums/topic/164343-nenjuku-needhi-2022tamil1080pweb-dlx264dd51-640kbps-upmixedesub-33gb-gdrive/&do=findComment&comment=328762)
-- [Uppena &lpar;2021&rpar; - Complete Music Video Album - NF - 1080p - H264 - DD+ 5.1 @ 640 Kbps - Original - 1GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164345-uppena-2021-complete-music-video-album-nf-1080p-h264-dd-51-640-kbps-original-1gb/&do=findComment&comment=328761)
-- [Nenjuku Needhi &lpar;2022&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 3.3GB - GDRIVE](https://www.1tamilmv.cloud/index.php?/forums/topic/164343-nenjuku-needhi-2022tamil1080pweb-dlx264dd51-640kbps-upmixedesub-33gb-gdrive/&do=findComment&comment=328759)
-- [[G-DRIVE] DON &lpar;2022&rpar; TRUE WEB-DL - [1080P &amp; 720P - HEVC / AVC - 8.4GB - 2.4GB - 1.4GB &amp; 650MB] - [X264 / XVID - 700MB - 400MB &amp; 250MB] - ESUB](https://www.1tamilmv.cloud/index.php?/forums/topic/164342-g-drive-don-2022-true-web-dl-1080p-720p-hevc-avc-84gb-24gb-14gb-650mb-x264-xvid-700mb-400mb-250mb-esub/&do=findComment&comment=328758)
+- [Suzhal The Vortex &lpar;2022&rpar; S01 [ 4k 2160p HDR&amp;SDR + 1080p + 720p] HEVC DDP5.1-640kbps [Telugu+Tamil+Hindi+English+Malayalam]ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164040-suzhal-the-vortex-2022-s01-4k-2160p-hdrsdr-1080p-720p-hevc-ddp51-640kbps-telugutamilhindienglishmalayalamesubs/&do=findComment&comment=328771)
+- [14 Tamil Movies 4k - 2160p UHD - HDR &amp; SDR - [Tam + Hin &lpar;DD5.1 &amp; ATMOS&rpar;] -17GB to 4GB - &lpar;170GB&rpar; ESub ~ Immortal Encodes 🔰 ATMOS - GDRIVE 🔰](https://www.1tamilmv.cloud/index.php?/forums/topic/152640-14-tamil-movies-4k-2160p-uhd-hdr-sdr-tam-hin-dd51-atmos-17gb-to-4gb-170gb-esub-~-immortal-encodes-%F0%9F%94%B0-atmos-gdrive-%F0%9F%94%B0/&do=findComment&comment=328770)
+- [Purushothama &lpar;2022&rpar; Kannada Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164351-purushothama-2022-kannada-full-movie-watch-now-hq-for-free/&do=findComment&comment=328769)
+- [Nenjuku Needhi &lpar;2022&rpar; [Tam + Tel + Mal + Kan] Full Movie Watch Now HQ For Free](https://www.1tamilmv.cloud/index.php?/forums/topic/164350-nenjuku-needhi-2022-tam-tel-mal-kan-full-movie-watch-now-hq-for-free/&do=findComment&comment=328768)
+- [New Life &lpar;2022&rpar; S01 EP &lpar;01-05&rpar; 720p DSNP WEB-DL x264 &lpar;AAC 2.0 - 128Kbps&rpar; [Tel + Tam + Hin + Tur] ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164349-new-life-2022-s01-ep-01-05-720p-dsnp-web-dl-x264-aac-20-128kbps-tel-tam-hin-tur-esubs/&do=findComment&comment=328767)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
