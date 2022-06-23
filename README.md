@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [@Movieshola - Takkari Donga &lpar;2002&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - AAC - 2.0 - 5GB hola.mkv 5GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164359-movieshola-takkari-donga-2002-telugu-true-web-dl-1080p-avc-untouched-aac-20-5gb-holamkv-5gb/&do=findComment&comment=328780)
+- [@Benzmovies - K.G.F Chapter 1 &lpar;2018&rpar; 4K 2160p UHD x265 HEVC - ACC - AVC DD 5.1 - MultiAuds - [Tamil - Telugu - Hindi - Malayalam - Kannada] ESub 12.3GB -Benz.mkv 12.3GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164358-benzmovies-kgf-chapter-1-2018-4k-2160p-uhd-x265-hevc-acc-avc-dd-51-multiauds-tamil-telugu-hindi-malayalam-kannada-esub-123gb-benzmkv-123gb/&do=findComment&comment=328779)
+- [JIO Telugu Movies &lpar;2010 - 2015&rpar; UNTOUCHED WEB-DLs Collection 2 + &lpar;Dolby Digital® 5.1 - 192Kbps&rpar; - 78GB](https://www.1tamilmv.cloud/index.php?/forums/topic/105784-jio-telugu-movies-2010-2015-untouched-web-dls-collection-2-dolby-digital%C2%AE-51-192kbps-78gb/&do=findComment&comment=328778)
+- [@Benzmovies - Sarrainodu 2016 1080p JIO WEB-DL Telugu AAC2.0 H.264 Benz.mkv 8.8GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164357-benzmovies-sarrainodu-2016-1080p-jio-web-dl-telugu-aac20-h264-benzmkv-88gb/&do=findComment&comment=328777)
 - [@Benzmovies - RRR &lpar;2022&rpar; 2160p HQ ZEE5 WEB-DL x265 10bit [Telugu &lpar;DD+ 5.1 ATMOS - 448Kbps&rpar;] ESubs Benz.mkv 14GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164356-benzmovies-rrr-2022-2160p-hq-zee5-web-dl-x265-10bit-telugu-dd-51-atmos-448kbps-esubs-benzmkv-14gb/&do=findComment&comment=328776)
-- [@Benzmoviez - Ispade Rajavum Idhaya Raniyum &lpar;2019&rpar; Tamil AMZN - WEB-DL - 1080p - AVC - DDP - 2.0 - 5.3GB Benz.mkv](https://www.1tamilmv.cloud/index.php?/forums/topic/164355-benzmoviez-ispade-rajavum-idhaya-raniyum-2019-tamil-amzn-web-dl-1080p-avc-ddp-20-53gb-benzmkv/&do=findComment&comment=328775)
-- [@Benzmovies - Arjun Reddy 2017 1080p AMZN WEB-DL TELUGU DDP5.1 H.264 Benz.mkv 9.0GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164354-benzmovies-arjun-reddy-2017-1080p-amzn-web-dl-telugu-ddp51-h264-benzmkv-90gb/&do=findComment&comment=328774)
-- [Obi-Wan Kenobi &lpar;2022&rpar; Complete S01 [4k 2160p + 1080p +720p ]  HS WEB-DL &lpar;DD+5.1 192kbps Telugu+Tamil+Hindi+English&rpar; HEVC +AVC &lpar;DV+HDR+SDR&rpar; [42GB+10GB+14GB+8GB+4GB]](https://www.1tamilmv.cloud/index.php?/forums/topic/164353-obi-wan-kenobi-2022-complete-s01-4k-2160p-1080p-720p-hs-web-dl-dd51-192kbps-telugutamilhindienglish-hevc-avc-dvhdrsdr-42gb10gb14gb8gb4gb/&do=findComment&comment=328773)
-- [[60FPS|IMAX] - Doctor.Strange.in.the.Multiverse.of.Madness.2022.IMAX.10bit.DSNP.WEBRip.Multi.DDP5.1.Esubs.x265.HEVC - 1080p | 720p - 9.93 GB | 2.94 GB | 2.11 GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164352-60fpsimax-doctorstrangeinthemultiverseofmadness2022imax10bitdsnpwebripmultiddp51esubsx265hevc-1080p-720p-993-gb-294-gb-211-gb/&do=findComment&comment=328772)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
