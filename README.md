@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [&lpar;90S HIT HINDI SONGS&rpar; DARR1993- JADHU THERI NAZAR HD1080P VIDEO SONG WITH 5.1 DTS.](https://www.1tamilmv.cloud/index.php?/forums/topic/164419-90s-hit-hindi-songs-darr1993-jadhu-theri-nazar-hd1080p-video-song-with-51-dts/&do=findComment&comment=328873)
+- [The.Boys.S03E06.AMZN.WEB-DL.Multi.DDP5.1.Esubs.x264 - 2160p [4K] HDR | 1080p | 720p - [7.05 GB - 2.28 GB]](https://www.1tamilmv.cloud/index.php?/forums/topic/164418-theboyss03e06amznweb-dlmultiddp51esubsx264-2160p-4k-hdr-1080p-720p-705-gb-228-gb/&do=findComment&comment=328872)
+- [Aayirathil.Oruvan.2009.Original.Motion.Picture.Soundtrack - G.V.Prakash.Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 317.1 MB | 120.28 MB | 60.54 MB](https://www.1tamilmv.cloud/index.php?/forums/topic/164417-aayirathiloruvan2009originalmotionpicturesoundtrack-gvprakashmusical-flac-16bit-mp3-320kbps128kbps-3171-mb-12028-mb-6054-mb/&do=findComment&comment=328871)
 - [Oh My Dog &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164394-oh-my-dog-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-320kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=328870)
 - [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;35-38&rpar; Tamil - 720p HQ HDRip - x264 - AAC - 400MB - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164415-kanaa-kaanum-kaalangal-2022-s01-ep-35-38-tamil-720p-hq-hdrip-x264-aac-400mb-esub/&do=findComment&comment=328869)
-- [The Last Airbender  &lpar;2010&rpar; BluRay - Multi Audios [Hindi-Tamil-Telugu - English] - [1080p 9GB 3GB] [720p 900MB] [480p 450MB] - ESubs](https://www.1tamilmv.cloud/index.php?/forums/topic/164378-the-last-airbender-2010-bluray-multi-audios-hindi-tamil-telugu-english-1080p-9gb-3gb-720p-900mb-480p-450mb-esubs/&do=findComment&comment=328868)
-- [Manmatha Leela &lpar;2022&rpar; Telugu TRUE WEB-DL - [2160p-4GB / 1080p-2.3GB / 720p-1.1GB / 480p-500MB] - x264/x265 - &lpar;DD+ 5.1 - 384Kbps &amp; AAC 2.0&rpar; - ESubs - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164416-manmatha-leela-2022-telugu-true-web-dl-2160p-4gb-1080p-23gb-720p-11gb-480p-500mb-x264x265-dd-51-384kbps-aac-20-esubs-gdrive/&do=findComment&comment=328867)
-- [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;35-38&rpar; Tamil - 720p HQ HDRip - x264 - AAC - 400MB - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164415-kanaa-kaanum-kaalangal-2022-s01-ep-35-38-tamil-720p-hq-hdrip-x264-aac-400mb-esub/&do=findComment&comment=328866)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
