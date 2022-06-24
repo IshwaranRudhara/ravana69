@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Money Heist: Korea – Joint Economic Area Season 1 Dual Audio {Hindi + English} Web Series 480p, 720p &amp; 1080p](https://www.1tamilmv.cloud/index.php?/forums/topic/164466-money%C2%A0heist-korea%C2%A0%E2%80%93-joint-economic-area-season-1%C2%A0dual-audio-hindi-english-web-series-480p-720p-1080p/&do=findComment&comment=328940)
-- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; In English WEB-DL 480p 720p, 1080p &amp; 2160p 4K](https://www.1tamilmv.cloud/index.php?/forums/topic/164465-doctor-strange-in-the-multiverse-of-madness-2022-in-english-web-dl-480p-720p-1080p-2160p-4k%C2%A0/&do=findComment&comment=328939)
-- [RECCE &lpar;2022&rpar; - [A ZEE5 ORIGINAL] - All S01/EP &lpar;01-07&rpar; - &lpar;TELUGU ORIGINAL&rpar; - [4K-UHD-2160p] - WEB-DL - HEVC - 10Bit - &lpar;DD+ 5.1 – 192Kbps &amp; AAC 2.0&rpar; - [UNTOUCHED] - &lpar;11.47GB&rpar;-[🔰GOOGLE DRIVE LINK].](https://www.1tamilmv.cloud/index.php?/forums/topic/164464-recce-2022-a-zee5-original-all-s01ep-01-07-telugu-original-4k-uhd-2160p-web-dl-hevc-10bit-dd-51-%E2%80%93-192kbps-aac-20-untouched-1147gb-%F0%9F%94%B0google-drive-link/&do=findComment&comment=328938)
-- [The Sorcerer and the White Snake 2011 DD5.1 Russian+DD5.1 Chinese +DD2.0 Hindi +DD2.0 Tamil+DD2.0 Telugu 1080p Blu-Ray Remux Esub 19GB First on net [G-Drive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164463-the-sorcerer-and-the-white-snake-2011-dd51-russiandd51-chinese-dd20-hindi-dd20-tamildd20-telugu-1080p-blu-ray-remux-esub-19gb-first-on-net-g-drive/&do=findComment&comment=328937)
-- [Morbius &lpar;2022&rpar; BluRay - HDR10 - 2160p [Tamil + Telugu + Hindi] DDP5.1 &lpar;640Kbps&rpar; + [English - TrueHD Atmos 7.1] - H.264 - 26.1GB - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164462-morbius-2022-bluray-hdr10-2160p-tamil-telugu-hindi-ddp51-640kbps-english-truehd-atmos-71-h264-261gb-esub/&do=findComment&comment=328936)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328945)
+- [Vikram Hitlist &lpar;2022&rpar; &lpar;Original Motion Picture Soundtrack&rpar; - EP [M4A - Itunes]](https://www.1tamilmv.cloud/index.php?/forums/topic/164469-vikram-hitlist-2022-original-motion-picture-soundtrack-ep-m4a-itunes/&do=findComment&comment=328944)
+- [PellisandaD &lpar;2021&rpar; - Telugu - [4K|1080P|720P] - UHD - ZEE5 - HEVC - [AC3&lpar;DD+5.1&rpar;|AAC&lpar;5.1&rpar;] - [192|128Kbps] - ESubs - [8.65GB|2.66GB|1.49GB]](https://www.1tamilmv.cloud/index.php?/forums/topic/164404-pellisandad-2021-telugu-4k1080p720p-uhd-zee5-hevc-ac3dd51aac51-192128kbps-esubs-865gb266gb149gb/&do=findComment&comment=328943)
+- [55 Tamil Movies - 1080p - WEB DL - HEVC x265 - DD5.1 / AAC5.1 / AAC2.0 - Esub - 75GB [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164468-55-tamil-movies-1080p-web-dl-hevc-x265-dd51-aac51-aac20-esub-75gb-gdrive/&do=findComment&comment=328942)
+- [The Boys Season 3 &lpar;2022&rpar; Amazon Prime WEB Series 480p, 720p, 1080p &amp; 2160p 4K](https://www.1tamilmv.cloud/index.php?/forums/topic/164467-the-boys-season-3-2022-amazon-prime-web-series-480p-720p-1080p-2160p-4k/&do=findComment&comment=328941)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
