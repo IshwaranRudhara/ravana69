@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328959)
-- [Fingertip &lpar;2022&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 900MB] - ESub](https://www.1tamilmv.cloud/index.php?/forums/topic/164045-fingertip-2022-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-26gb-14gb-x264-900mb-esub/&do=findComment&comment=328958)
-- [Vikram 1986 Tamil Full Movie Download|HDTV Rip 1080p 6.7GB 1080p 1.9GB 1.5GB 1.4GB 900MB 700MB 400MB](https://www.1tamilmv.cloud/index.php?/forums/topic/163094-vikram-1986-tamil-full-movie-downloadhdtv-rip-1080p-67gb-1080p-19gb-15gb-14gb-900mb-700mb-400mb/&do=findComment&comment=328957)
-- [Porkanda Singam &lpar;EDM Version&rpar; [&quot;Vikram&quot;] &lpar;Tamil&rpar; [2022] &lpar;Sony Music&rpar; FLAC - FallenWarrior](https://www.1tamilmv.cloud/index.php?/forums/topic/164476-porkanda-singam-edm-version-vikram-tamil-2022-sony-music-flac-fallenwarrior/&do=findComment&comment=328956)
-- [Thiruchitrambalam - Thaai Kelavi - Official Lyric Video - 1080P - DD5.1 Upmixed](https://www.1tamilmv.cloud/index.php?/forums/topic/164475-thiruchitrambalam-thaai-kelavi-official-lyric-video-1080p-dd51-upmixed/&do=findComment&comment=328955)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328971)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328970)
+- [Race Gurram &lpar;2014&rpar; Telugu JC WEB-DL - [1080p-9GB-7GB-6GB-4.5GB / 720p-1.5GB / 480p-1GB / 360p-800MB / 240p-500MB] - AVC - DD+5.1 - 192kbps &amp; AAC 2.0 - Esubs - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164486-race-gurram-2014-telugu-jc-web-dl-1080p-9gb-7gb-6gb-45gb-720p-15gb-480p-1gb-360p-800mb-240p-500mb-avc-dd51-192kbps-aac-20-esubs-gdrive/&do=findComment&comment=328969)
+- [Political Rowdy &lpar;2005&rpar; Telugu HOTSTAR WEB-DL - [1080p-4.7GB / 720p-2GB / 360p-950MB / 240p-500MB] - AVC - AAC - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164485-political-rowdy-2005-telugu-hotstar-web-dl-1080p-47gb-720p-2gb-360p-950mb-240p-500mb-avc-aac-gdrive/&do=findComment&comment=328968)
+- [Okka Kshanam &lpar;2017&rpar; Telugu JC WEB-DL - [1080p-9GB-4.7GB / 720p-1.4GB / 480p-1GB / 360p-750MB / 240p-500MB] - AVC - DD+5.1 - 192kbps &amp; AAC 2.0 - Esubs - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164484-okka-kshanam-2017-telugu-jc-web-dl-1080p-9gb-47gb-720p-14gb-480p-1gb-360p-750mb-240p-500mb-avc-dd51-192kbps-aac-20-esubs-gdrive/&do=findComment&comment=328967)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
