@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jug Jugg Jeeyo &lpar;2022&rpar; - Hindi - [1080P|720P] - PreDVDRip - [HEVC|AVC] - AAC&lpar;2.0&rpar; - [3.26GB|1.95GB|893MB]](https://www.1tamilmv.cloud/index.php?/forums/topic/164528-jug-jugg-jeeyo-2022-hindi-1080p720p-predvdrip-hevcavc-aac20-326gb195gb893mb/&do=findComment&comment=329023)
+- [Doctor Strange in the Multiverse of Madness 2022 720p / 1080p 10bit x265 HEVC](https://www.1tamilmv.cloud/index.php?/forums/topic/164527-doctor-strange-in-the-multiverse-of-madness-2022-720p-1080p-10bit-x265-hevc/&do=findComment&comment=329022)
+- [༒    Maamanithan &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio - Google Drive](https://www.1tamilmv.cloud/index.php?/forums/topic/164526-%E0%BC%92-maamanithan-2022-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-google-drive/&do=findComment&comment=329021)
+- [Race Gurram &lpar;2014&rpar; Telugu JC WEB-DL - [1080p-9GB-7GB-6GB-4.5GB / 720p-1.5GB / 480p-1GB / 360p-800MB / 240p-500MB] - AVC - DD+5.1 - 192kbps &amp; AAC 2.0 - Esubs - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164486-race-gurram-2014-telugu-jc-web-dl-1080p-9gb-7gb-6gb-45gb-720p-15gb-480p-1gb-360p-800mb-240p-500mb-avc-dd51-192kbps-aac-20-esubs-gdrive/&do=findComment&comment=329020)
 - [BUG or ?: TAMILMV Links Wont Work](https://www.1tamilmv.cloud/index.php?/forums/topic/164525-bug-or-tamilmv-links-wont-work/&do=findComment&comment=329019)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=329015)
-- [Teenage Mutant Ninja Turtles &lpar;2014&rpar; &lpar;Blu-Ray + original Audios&rpar; - [1080p - &lpar;DD5.1 - 640kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; 2.95 GB x265 ESub]~ GaMeMaStEr](https://www.1tamilmv.cloud/index.php?/forums/topic/164521-teenage-mutant-ninja-turtles-2014-blu-ray-original-audios-1080p-dd51-640kbps-tamil-telugu-hindi-eng-295-gb-x265-esub~-gamemaster/&do=findComment&comment=329014)
-- [Teenage Mutant Ninja Turtles Out of the Shadows &lpar;2016&rpar; &lpar;Blu-Ray + Upmix Audios&rpar; - [1080p - &lpar;DD5.1 - 640kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; 2.61GB x265 ESub]~ GaMeMaStEr](https://www.1tamilmv.cloud/index.php?/forums/topic/164520-teenage-mutant-ninja-turtles-out-of-the-shadows-2016-blu-ray-upmix-audios-1080p-dd51-640kbps-tamil-hindi-eng-261gb-x265-esub~-gamemaster/&do=findComment&comment=329013)
-- [IMG](https://www.1tamilmv.cloud/index.php?/gallery/image/34-img/)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
