@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Man.Vs.Bee.S01.Complete.NF.WEB-DL.ENG.DDP5.1.Atmos.Esubs.x264 - 1080p | 720p - 3.6 GB | 2.53 GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164488-manvsbees01completenfweb-dlengddp51atmosesubsx264-1080p-720p-36-gb-253-gb/&do=findComment&comment=328974)
-- [Vunnadhi Okate Zindagi &lpar;2017&rpar; Telugu ZEE5 TRUE WEBDL - [1080p-3GB / 720p-1.3GB / 480p-900MB] - AVC - AAC - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164487-vunnadhi-okate-zindagi-2017-telugu-zee5-true-webdl-1080p-3gb-720p-13gb-480p-900mb-avc-aac-gdrive/&do=findComment&comment=328973)
-- [Race Gurram &lpar;2014&rpar; Telugu JC WEB-DL - [1080p-9GB-7GB-6GB-4.5GB / 720p-1.5GB / 480p-1GB / 360p-800MB / 240p-500MB] - AVC - DD+5.1 - 192kbps &amp; AAC 2.0 - Esubs - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164486-race-gurram-2014-telugu-jc-web-dl-1080p-9gb-7gb-6gb-45gb-720p-15gb-480p-1gb-360p-800mb-240p-500mb-avc-dd51-192kbps-aac-20-esubs-gdrive/&do=findComment&comment=328972)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328971)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.cloud/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=328970)
+- [@Benzmovies - Batman Begins &lpar;2005&rpar; BluRay 2160p 4K UHD 10Bit HIN+TAM-DD2.0 ENG-DTS HDMA 5.1 ESubs x265 Benz.mkv 28.3GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164494-benzmovies-batman-begins-2005-bluray-2160p-4k-uhd-10bit-hintam-dd20-eng-dts-hdma-51-esubs-x265-benzmkv-283gb/&do=findComment&comment=328980)
+- [Cyber Vaar Season 1 &lpar;2022&rpar; [Episode 6 Added] Hindi &amp; Multi Audio Voot WEB Series 480p | 720p | 1080p WEB-DL](https://www.1tamilmv.cloud/index.php?/forums/topic/164493-cyber-vaar-season-1-2022-episode-6-added-hindi-multi-audio-voot-web-series-480p-720p-1080p-web-dl/&do=findComment&comment=328979)
+- [@Movieshola - Bheemla Nayak &lpar;2022&rpar; 2160p SDR DSNP WEB-DL x265 [Telugu &lpar;DD+ 5.1 - 192Kbps &amp; AAC 2.0&rpar;] MSub Hola.mkv 10.3GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164492-movieshola-bheemla-nayak-2022-2160p-sdr-dsnp-web-dl-x265-telugu-dd-51-192kbps-aac-20-msub-holamkv-103gb/&do=findComment&comment=328978)
+- [@MoviesHola Khiladi &lpar;2022&rpar; 2160p SDR DSNP WEB-DL x265 [Telugu &lpar;DD+ 5.1 - 192Kbps &amp; AAC 2.0&rpar;] ESubs.mkv 10.9GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164491-movieshola-khiladi-2022-2160p-sdr-dsnp-web-dl-x265-telugu-dd-51-192kbps-aac-20-esubsmkv-109gb/&do=findComment&comment=328977)
+- [@MoviesHola Maaran &lpar;2022&rpar; 2160p HQ SDR DSNP WEB-DL x265 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Mal + Kan] ESubs.mkv 18.8GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164490-movieshola-maaran-2022-2160p-hq-sdr-dsnp-web-dl-x265-dd-51-192kbps-tel-tam-mal-kan-esubsmkv-188gb/&do=findComment&comment=328976)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
