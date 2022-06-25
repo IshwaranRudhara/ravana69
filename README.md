@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [@Benzmovies - Batman Begins &lpar;2005&rpar; BluRay 2160p 4K UHD 10Bit HIN+TAM-DD2.0 ENG-DTS HDMA 5.1 ESubs x265 Benz.mkv 28.3GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164494-benzmovies-batman-begins-2005-bluray-2160p-4k-uhd-10bit-hintam-dd20-eng-dts-hdma-51-esubs-x265-benzmkv-283gb/&do=findComment&comment=328980)
-- [Cyber Vaar Season 1 &lpar;2022&rpar; [Episode 6 Added] Hindi &amp; Multi Audio Voot WEB Series 480p | 720p | 1080p WEB-DL](https://www.1tamilmv.cloud/index.php?/forums/topic/164493-cyber-vaar-season-1-2022-episode-6-added-hindi-multi-audio-voot-web-series-480p-720p-1080p-web-dl/&do=findComment&comment=328979)
-- [@Movieshola - Bheemla Nayak &lpar;2022&rpar; 2160p SDR DSNP WEB-DL x265 [Telugu &lpar;DD+ 5.1 - 192Kbps &amp; AAC 2.0&rpar;] MSub Hola.mkv 10.3GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164492-movieshola-bheemla-nayak-2022-2160p-sdr-dsnp-web-dl-x265-telugu-dd-51-192kbps-aac-20-msub-holamkv-103gb/&do=findComment&comment=328978)
-- [@MoviesHola Khiladi &lpar;2022&rpar; 2160p SDR DSNP WEB-DL x265 [Telugu &lpar;DD+ 5.1 - 192Kbps &amp; AAC 2.0&rpar;] ESubs.mkv 10.9GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164491-movieshola-khiladi-2022-2160p-sdr-dsnp-web-dl-x265-telugu-dd-51-192kbps-aac-20-esubsmkv-109gb/&do=findComment&comment=328977)
-- [@MoviesHola Maaran &lpar;2022&rpar; 2160p HQ SDR DSNP WEB-DL x265 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Mal + Kan] ESubs.mkv 18.8GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164490-movieshola-maaran-2022-2160p-hq-sdr-dsnp-web-dl-x265-dd-51-192kbps-tel-tam-mal-kan-esubsmkv-188gb/&do=findComment&comment=328976)
+- [@Benzmovies - GODZILLA vs. KONG &lpar;2021&rpar; TRUE WEB-DL - 4K HDR 10 - HEVC - Original Audios - &lpar;DD+5.1 - 384Kbps&rpar; [Tamil + Telugu + Eng &lpar;ATMOS&rpar;] - 15.4GB - ESub] Benz.mkv 14.6GB](https://www.1tamilmv.cloud/index.php?/forums/topic/164499-benzmovies-godzilla-vs-kong-2021-true-web-dl-4k-hdr-10-hevc-original-audios-dd51-384kbps-tamil-telugu-eng-atmos-154gb-esub-benzmkv-146gb/&do=findComment&comment=328998)
+- [The Subtle Art of Not Giving a F*ck](https://www.1tamilmv.cloud/index.php?/forums/topic/164506-the-subtle-art-of-not-giving-a-fck/&do=findComment&comment=328997)
+- [Nanbenda &lpar;2014&rpar;[Tamil - Sony Music - ACDRip - 16Bit - Untouched - WAV]](https://www.1tamilmv.cloud/index.php?/forums/topic/164507-nanbenda-2014tamil-sony-music-acdrip-16bit-untouched-wav/&do=findComment&comment=328996)
+- [Oru Kal Oru Kannadi &lpar;2012&rpar; Tamil 1080p QHD Rip 2.2GB](https://www.1tamilmv.cloud/index.php?/forums/topic/89730-oru-kal-oru-kannadi-2012-tamil-1080p-qhd-rip-22gb/&do=findComment&comment=328995)
+- [Nanbenda &lpar;2014&rpar;[Tamil - Sony Music - ACDRip - 16Bit - Untouched - WAV]](https://www.1tamilmv.cloud/index.php?/forums/topic/164507-nanbenda-2014tamil-sony-music-acdrip-16bit-untouched-wav/&do=findComment&comment=328994)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
