@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Jug Jugg Jeeyo &lpar;2022&rpar; - Hindi - [1080P|720P] - PreDVDRip - [HEVC|AVC] - AAC&lpar;2.0&rpar; - [3.26GB|1.95GB|893MB]](https://www.1tamilmv.cloud/index.php?/forums/topic/164528-jug-jugg-jeeyo-2022-hindi-1080p720p-predvdrip-hevcavc-aac20-326gb195gb893mb/&do=findComment&comment=329023)
-- [Doctor Strange in the Multiverse of Madness 2022 720p / 1080p 10bit x265 HEVC](https://www.1tamilmv.cloud/index.php?/forums/topic/164527-doctor-strange-in-the-multiverse-of-madness-2022-720p-1080p-10bit-x265-hevc/&do=findComment&comment=329022)
-- [༒    Maamanithan &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio - Google Drive](https://www.1tamilmv.cloud/index.php?/forums/topic/164526-%E0%BC%92-maamanithan-2022-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-google-drive/&do=findComment&comment=329021)
-- [Race Gurram &lpar;2014&rpar; Telugu JC WEB-DL - [1080p-9GB-7GB-6GB-4.5GB / 720p-1.5GB / 480p-1GB / 360p-800MB / 240p-500MB] - AVC - DD+5.1 - 192kbps &amp; AAC 2.0 - Esubs - [GDrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164486-race-gurram-2014-telugu-jc-web-dl-1080p-9gb-7gb-6gb-45gb-720p-15gb-480p-1gb-360p-800mb-240p-500mb-avc-dd51-192kbps-aac-20-esubs-gdrive/&do=findComment&comment=329020)
-- [BUG or ?: TAMILMV Links Wont Work](https://www.1tamilmv.cloud/index.php?/forums/topic/164525-bug-or-tamilmv-links-wont-work/&do=findComment&comment=329019)
+- [DON &lpar;2022&rpar; [Tamil + Telugu + Malayalam + Kannada] TRUE WEB-DL - [1080p &amp; 720p - AVC - 8.5GB - 2.4GB - 1.4GB - 1.6GB] - ESub - &lpar;GDRive&rpar;](https://www.1tamilmv.cloud/index.php?/forums/topic/164534-don-2022-tamil-telugu-malayalam-kannada-true-web-dl-1080p-720p-avc-85gb-24gb-14gb-16gb-esub-gdrive/&do=findComment&comment=329035)
+- [Sarkaru Vaari Paata &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 10.4GB - 6.7GB - 4.9GB - 3.9GB - 2.8GB - 1.6GB] - ESub - &lpar;GDRive&rpar;](https://www.1tamilmv.cloud/index.php?/forums/topic/164533-sarkaru-vaari-paata-2022-telugu-true-web-dl-1080p-720p-avc-104gb-67gb-49gb-39gb-28gb-16gb-esub-gdrive/&do=findComment&comment=329034)
+- [50 Malayalam Movies - 1080p - AMZN / SUN NXT / MX / DSNP WEB DL - H.264 - DD5.1 / DDP2.0 / AAC2.0 - ESub - 250GD [Gdrive]](https://www.1tamilmv.cloud/index.php?/forums/topic/164532-50-malayalam-movies-1080p-amzn-sun-nxt-mx-dsnp-web-dl-h264-dd51-ddp20-aac20-esub-250gd-gdrive/&do=findComment&comment=329033)
+- [Forensic &lpar;2022&rpar; - Hindi - [4K|1080P|720P] - HDRip - ZEE5 - HEVC - [AC3&lpar;DD+5.1&rpar; + AAC&lpar;5.1&rpar;] - [192 + 128Kbps] - ESubs - 9.2GB - [DSM]](https://www.1tamilmv.cloud/index.php?/forums/topic/164531-forensic-2022-hindi-4k1080p720p-hdrip-zee5-hevc-ac3dd51-aac51-192-128kbps-esubs-92gb-dsm/&do=findComment&comment=329032)
+- [Forensic &lpar;2022&rpar; - Hindi - [4K|1080P|720P] - HDRip - ZEE5 - HEVC - [AC3&lpar;DD+5.1&rpar; + AAC&lpar;5.1&rpar;] - [192 + 128Kbps] - ESubs - 9.2GB - [DSM]](https://www.1tamilmv.cloud/index.php?/forums/topic/164530-forensic-2022-hindi-4k1080p720p-hdrip-zee5-hevc-ac3dd51-aac51-192-128kbps-esubs-92gb-dsm/&do=findComment&comment=329031)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
