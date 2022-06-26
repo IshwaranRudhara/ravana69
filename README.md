@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Anek &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 6.3GB - 2.8GB - 1.4GB] - [x264 - &lpar;Tam + Tel + Hin&rpar; - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164546-anek-2022-true-web-dl-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-63gb-28gb-14gb-x264-tam-tel-hin-800mb-450mb-esub/&do=findComment&comment=329093)
+- [Journey &lpar;2011&rpar; Telugu JC WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-650MB / 240p-450MB] - AVC - AAC - [GDriveLinks &amp; DoodstreamLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164575-journey-2011-telugu-jc-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-650mb-240p-450mb-avc-aac-gdrivelinks-doodstreamlinks/&do=findComment&comment=329092)
+- [Abhinetri &lpar;2016&rpar; Telugu TRUE WEBDL - [1080p-7GB-2.1GB / 720p-1.8GB] - Esub - [GDrive]](https://www.1tamilmv.space/index.php?/forums/topic/164574-abhinetri-2016-telugu-true-webdl-1080p-7gb-21gb-720p-18gb-esub-gdrive/&do=findComment&comment=329091)
 - [The.Boys.S03E06.Herogasm.1080p.UNCUT.AMZN.WEBRip.Multi.DDP5.1.H.265 - 144FPS | 60FPS - 7.63 GB | 4.76 GB](https://www.1tamilmv.space/index.php?/forums/topic/164573-theboyss03e06herogasm1080puncutamznwebripmultiddp51h265-144fps-60fps-763-gb-476-gb/&do=findComment&comment=329090)
 - [IMG.png](https://www.1tamilmv.space/index.php?/gallery/image/35-imgpng/)
-- [Thor: Love and Thunder - Official Clip &lpar;2022&rpar; Chris Hemsworth, Natalie Portman, Tessa Thomspon](https://www.1tamilmv.space/index.php?/forums/topic/164572-thor-love-and-thunder-official-clip-2022-chris-hemsworth-natalie-portman-tessa-thomspon/&do=findComment&comment=329089)
-- [Thor: Love and Thunder - Official Clip &lpar;2022&rpar; Chris Hemsworth, Taika Waititi](https://www.1tamilmv.space/index.php?/forums/topic/164571-thor-love-and-thunder-official-clip-2022-chris-hemsworth-taika-waititi/&do=findComment&comment=329088)
-- [Thor: Love and Thunder - Official Clip &lpar;2022&rpar; Chris Hemsworth, Natalie Portman, Tessa Thomspon](https://www.1tamilmv.space/index.php?/forums/topic/164570-thor-love-and-thunder-official-clip-2022-chris-hemsworth-natalie-portman-tessa-thomspon/&do=findComment&comment=329087)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
