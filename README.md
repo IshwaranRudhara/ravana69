@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [THALAPATHY VIJAY CLASSIC HITS &lpar; AI UPSCALED &rpar; VIDEO SONGS WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/164617-thalapathy-vijay-classic-hits-ai-upscaled-video-songs-with-51-dts/&do=findComment&comment=329146)
+- [Ante Sundaraniki &lpar;2022&rpar; - Hindi - [1080P|720P|480P] - PreDVDRip - [AVC|HEVC] - AAC&lpar;2.0&rpar; - [192|96Kbps] - HC-ESubs - [3.97GB|2.73GB|1.37GB|928MB|543MB] - [DSM]](https://www.1tamilmv.space/index.php?/forums/topic/164603-ante-sundaraniki-2022-hindi-1080p720p480p-predvdrip-avchevc-aac20-19296kbps-hc-esubs-397gb273gb137gb928mb543mb-dsm/&do=findComment&comment=329145)
+- [Dhasavathaaram &lpar;2007&rpar; Telugu Music Video Album - JC - &amp;nbsp;1080p - x264 - [DDp5.1@192bps] - Original - 1.2GB](https://www.1tamilmv.space/index.php?/forums/topic/164544-dhasavathaaram-2007-telugu-music-video-album-jc-nbsp1080p-x264-ddp51192bps-original-12gb/&do=findComment&comment=329144)
+- [Thammudu &lpar;1998&rpar; Telugu AMZN WEB-DL 1080p AVC DD+2.0 &lpar;224Kbps&rpar; ESub - 10.37 GB](https://www.1tamilmv.space/index.php?/forums/topic/164579-thammudu-1998-telugu-amzn-web-dl-1080p-avc-dd20-224kbps-esub-1037-gb/&do=findComment&comment=329143)
 - [Eega BluRay 14GB [DTSHDMA+DTS+DD640]](https://www.1tamilmv.space/index.php?/forums/topic/164616-eega-bluray-14gb-dtshdmadtsdd640/&do=findComment&comment=329142)
-- [Panjaa 14.5GB [DTSHDMA+DTS+DD640] ESub](https://www.1tamilmv.space/index.php?/forums/topic/164615-panjaa-145gb-dtshdmadtsdd640-esub/&do=findComment&comment=329141)
-- [Darling 14.5GB [DTSHDMA+DD640] ESub](https://www.1tamilmv.space/index.php?/forums/topic/164614-darling-145gb-dtshdmadd640-esub/&do=findComment&comment=329140)
-- [Brindavanam 14.5 GB [LPCM] ESub](https://www.1tamilmv.space/index.php?/forums/topic/164613-brindavanam-145-gb-lpcm-esub/&do=findComment&comment=329139)
-- [Balupu [DTSHDMA+DD5.1+DTS] 14.5GB ESub](https://www.1tamilmv.space/index.php?/forums/topic/164612-balupu-dtshdmadd51dts-145gb-esub/&do=findComment&comment=329138)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
