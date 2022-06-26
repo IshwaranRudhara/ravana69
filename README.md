@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Nayakan &lpar;1987&rpar; Tamil - TRUE-HD AVC UNTOUCHED - x264 - DDP 2.0 - AAC 2.0 - [1080p - 21.4GB - 15GB - 13GB  - 2.6GB | 720p - 1.4GB - 700MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164609-nayakan-1987-tamil-true-hd-avc-untouched-x264-ddp-20-aac-20-1080p-214gb-15gb-13gb-26gb-720p-14gb-700mb-esub/&do=findComment&comment=329135)
-- [Gangubai Kathiawadi &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;HQ Dub&rpar; - 2.4GB - 1.3GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164608-gangubai-kathiawadi-2022-tamil-web-dl-1080p-720p-avc-hq-dub-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=329134)
-- [༒     Dinosaur Island &lpar;2014&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.7GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/164607-%E0%BC%92-dinosaur-island-2014-bluray-original-audio-1080p-720p-x264-tamil-eng-17gb-850mb-x264-tamil-400mb-esub-google-drive/&do=findComment&comment=329132)
-- [Journey &lpar;2011&rpar; Telugu JC WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-650MB / 240p-450MB] - AVC - AAC - [GDriveLinks &amp; DoodstreamLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164575-journey-2011-telugu-jc-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-650mb-240p-450mb-avc-aac-gdrivelinks-doodstreamlinks/&do=findComment&comment=329130)
-- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;IMAX WEB-DL + DD5.1 Original Audios&rpar; - [4K, 1080p &amp; 720p - HEVC / AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + English] - 9.7GB - 8.1GB - 3.2GB &amp; 1.7GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.space/index.php?/forums/topic/164317-doctor-strange-in-the-multiverse-of-madness-2022-imax-web-dl-dd51-original-audios-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-malayalam-kannada-english-97gb-81gb-32gb-17gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=329129)
+- [Eega BluRay 14GB [DTSHDMA+DTS+DD640]](https://www.1tamilmv.space/index.php?/forums/topic/164616-eega-bluray-14gb-dtshdmadtsdd640/&do=findComment&comment=329142)
+- [Panjaa 14.5GB [DTSHDMA+DTS+DD640] ESub](https://www.1tamilmv.space/index.php?/forums/topic/164615-panjaa-145gb-dtshdmadtsdd640-esub/&do=findComment&comment=329141)
+- [Darling 14.5GB [DTSHDMA+DD640] ESub](https://www.1tamilmv.space/index.php?/forums/topic/164614-darling-145gb-dtshdmadd640-esub/&do=findComment&comment=329140)
+- [Brindavanam 14.5 GB [LPCM] ESub](https://www.1tamilmv.space/index.php?/forums/topic/164613-brindavanam-145-gb-lpcm-esub/&do=findComment&comment=329139)
+- [Balupu [DTSHDMA+DD5.1+DTS] 14.5GB ESub](https://www.1tamilmv.space/index.php?/forums/topic/164612-balupu-dtshdmadd51dts-145gb-esub/&do=findComment&comment=329138)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
