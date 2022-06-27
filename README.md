@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jadaghatta &lpar;2022&rpar; Kannada TRUE WEB-DL - [720p - HD AVC - 1.3GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/164644-jadaghatta-2022-kannada-true-web-dl-720p-hd-avc-13gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=329201)
+- [Indian &lpar;1996&rpar; [ Tamil - 1080p - AVC - UNTOUCHED - AAC2.0 - x264 - 3.7GB]](https://www.1tamilmv.space/index.php?/forums/topic/164279-indian-1996-tamil-1080p-avc-untouched-aac20-x264-37gb/&do=findComment&comment=329200)
+- [10 Malayalam Movies - 1080p - DNP / SUN NXT WEBDL - H.264 / H.265 - DD5.1 / AAC5.1 / AAC2.0 - ESub - 30GB [GDrive]](https://www.1tamilmv.space/index.php?/forums/topic/164654-10-malayalam-movies-1080p-dnp-sun-nxt-webdl-h264-h265-dd51-aac51-aac20-esub-30gb-gdrive/&do=findComment&comment=329199)
+- [50 Tamil Movies - 1080p - AMZN / ZEE5 / SS / JC / TK WEB DL - DD5.1 / AAC5.1 / AAC2.0 - ESub - 70GB [GDrive]](https://www.1tamilmv.space/index.php?/forums/topic/164653-50-tamil-movies-1080p-amzn-zee5-ss-jc-tk-web-dl-dd51-aac51-aac20-esub-70gb-gdrive/&do=findComment&comment=329198)
 - [Jadaghatta &lpar;2022&rpar; Kannada TRUE WEB-DL - [720p - HD AVC - 1.3GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/164644-jadaghatta-2022-kannada-true-web-dl-720p-hd-avc-13gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=329197)
-- [Clap &lpar;2022&rpar; TK WEB-DL[1080p - Tamil -DD 5.1]  AVC - 6.6 GB](https://www.1tamilmv.space/index.php?/forums/topic/164646-clap-2022-tk-web-dl1080p-tamil-dd-51-avc-66-gb/&do=findComment&comment=329196)
-- [Sathamanam Bhavathi &lpar;2017&rpar; - [1080p-3GB / 720p-1.1GB / 480p-800MB / 360p-600MB] - ZEE5 - WEBDL - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164652-sathamanam-bhavathi-2017-1080p-3gb-720p-11gb-480p-800mb-360p-600mb-zee5-webdl-avc-aac-gdrivelinks/&do=findComment&comment=329195)
-- [RDX Love &lpar;2019&rpar; Telugu JC WEB-DL - [1080p-8.5GB-4.5GB / 720p-1.3GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164651-rdx-love-2019-telugu-jc-web-dl-1080p-85gb-45gb-720p-13gb-480p-900mb-360p-700mb-240p-450mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=329194)
-- [Petta &lpar;2019&rpar; Telugu NF WEB-DL - [1080p-9GB-5GB-4GB / 720p-1.4GB / 360p-500MB] - AVC - DD+5.1 - 640kbps &amp; AAC - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164650-petta-2019-telugu-nf-web-dl-1080p-9gb-5gb-4gb-720p-14gb-360p-500mb-avc-dd51-640kbps-aac-esubs-gdrivelinks/&do=findComment&comment=329193)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
