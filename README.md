@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Ante Sundaraniki &lpar;2022&rpar; - Telugu - [1080P|720P|480P] - PreDVDRip - [AVC|HEVC] - AAC&lpar;2.0&rpar; - [192|96Kbps] - HC-ESubs - [3.97GB|2.73GB|1.37GB|928MB|543MB] - [DSM]](https://www.1tamilmv.space/index.php?/forums/topic/164619-ante-sundaraniki-2022-telugu-1080p720p480p-predvdrip-avchevc-aac20-19296kbps-hc-esubs-397gb273gb137gb928mb543mb-dsm/&do=findComment&comment=329150)
-- [Money Heist: Korea – Joint Economic Area &lpar;2022&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - [English + Hindi + Korean] - 22GB &amp; 11GB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164618-money-heist-korea-%E2%80%93-joint-economic-area-2022-s01-ep01-06-true-web-dl-1080p-720p-hevc-avc-english-hindi-korean-22gb-11gb-esub/&do=findComment&comment=329149)
-- [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;35-38&rpar; Tamil - 720p HQ HDRip - x264 - AAC - 400MB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164415-kanaa-kaanum-kaalangal-2022-s01-ep-35-38-tamil-720p-hq-hdrip-x264-aac-400mb-esub/&do=findComment&comment=329148)
-- [Ante Sundaraniki &lpar;2022&rpar; - Hindi - [1080P|720P|480P] - PreDVDRip - [AVC|HEVC] - AAC&lpar;2.0&rpar; - [192|96Kbps] - HC-ESubs - [3.97GB|2.73GB|1.37GB|928MB|543MB] - [DSM]](https://www.1tamilmv.space/index.php?/forums/topic/164603-ante-sundaraniki-2022-hindi-1080p720p480p-predvdrip-avchevc-aac20-19296kbps-hc-esubs-397gb273gb137gb928mb543mb-dsm/&do=findComment&comment=329147)
-- [THALAPATHY VIJAY CLASSIC HITS &lpar; AI UPSCALED &rpar; VIDEO SONGS WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/164617-thalapathy-vijay-classic-hits-ai-upscaled-video-songs-with-51-dts/&do=findComment&comment=329146)
+- [The Man from Toronto &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164425-the-man-from-toronto-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-33gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=329157)
+- [Panthrand &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/164624-panthrand-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=329156)
+- [Priyan Ottathilanu &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/164623-priyan-ottathilanu-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=329155)
+- [Gangubai Kathiawadi &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/164622-gangubai-kathiawadi-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=329154)
+- [Gangubai Kathiawadi &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;HQ Dub&rpar; - 2.4GB - 1.3GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164606-gangubai-kathiawadi-2022-tamil-web-dl-1080p-720p-avc-hq-dub-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=329153)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
