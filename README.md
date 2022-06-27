@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nayakan &lpar;1987&rpar; Tamil - 1080p HQ HDRip - x264 - &lpar;DD2.0 &lpar;192 Kbps&rpar; + AAC 2.0&rpar; - 2.5GB 1- ESub].mkv](https://www.1tamilmv.space/index.php?/forums/topic/164645-nayakan-1987-tamil-1080p-hq-hdrip-x264-dd20-192-kbps-aac-20-25gb-1-esubmkv/&do=findComment&comment=329188)
+- [Jadaghatta &lpar;2022&rpar; Kannada TRUE WEB-DL - [720p - HD AVC - 1.3GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/164644-jadaghatta-2022-kannada-true-web-dl-720p-hd-avc-13gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=329187)
 - [Maapla Singam &lpar;2016&rpar; TK - WEB-DL [1080p - Tamil - DD5.1] - H.264 - 3.7GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164640-maapla-singam-2016-tk-web-dl-1080p-tamil-dd51-h264-37gb-esub/&do=findComment&comment=329186)
 - [Maapla Singam &lpar;2016&rpar; TK - WEB-DL [1080p - Tamil - DD5.1] - H.264 - 3.7GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164640-maapla-singam-2016-tk-web-dl-1080p-tamil-dd51-h264-37gb-esub/&do=findComment&comment=329185)
 - [Mayakkam Enna &lpar;2011&rpar; - Tamil Video Songs - 1080p - HDRip - DD5.1 &amp; DTS](https://www.1tamilmv.space/index.php?/forums/topic/148667-mayakkam-enna-2011-tamil-video-songs-1080p-hdrip-dd51-dts/&do=findComment&comment=329184)
-- [Mayakkam Enna &lpar;2011&rpar; - Tamil Video Songs - 1080p - HDRip - DD5.1 &amp; DTS](https://www.1tamilmv.space/index.php?/forums/topic/148667-mayakkam-enna-2011-tamil-video-songs-1080p-hdrip-dd51-dts/&do=findComment&comment=329183)
-- [Obi-Wan Kenobi S1 &lpar;2022&rpar; Hindi Dubbed Completed Web Series HEVC ESub Watch online or Download](https://www.1tamilmv.space/index.php?/forums/topic/164643-obi-wan-kenobi-s1-2022-hindi-dubbed-completed-web-series-hevc-esub-watch-online-or-download/&do=findComment&comment=329182)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
