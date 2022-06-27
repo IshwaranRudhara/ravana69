@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maapla Singam &lpar;2016&rpar; TK - WEB-DL [1080p - Tamil - DD5.1] - H.264 - 3.7GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164640-maapla-singam-2016-tk-web-dl-1080p-tamil-dd51-h264-37gb-esub/&do=findComment&comment=329186)
+- [Maapla Singam &lpar;2016&rpar; TK - WEB-DL [1080p - Tamil - DD5.1] - H.264 - 3.7GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164640-maapla-singam-2016-tk-web-dl-1080p-tamil-dd51-h264-37gb-esub/&do=findComment&comment=329185)
 - [Mayakkam Enna &lpar;2011&rpar; - Tamil Video Songs - 1080p - HDRip - DD5.1 &amp; DTS](https://www.1tamilmv.space/index.php?/forums/topic/148667-mayakkam-enna-2011-tamil-video-songs-1080p-hdrip-dd51-dts/&do=findComment&comment=329184)
 - [Mayakkam Enna &lpar;2011&rpar; - Tamil Video Songs - 1080p - HDRip - DD5.1 &amp; DTS](https://www.1tamilmv.space/index.php?/forums/topic/148667-mayakkam-enna-2011-tamil-video-songs-1080p-hdrip-dd51-dts/&do=findComment&comment=329183)
 - [Obi-Wan Kenobi S1 &lpar;2022&rpar; Hindi Dubbed Completed Web Series HEVC ESub Watch online or Download](https://www.1tamilmv.space/index.php?/forums/topic/164643-obi-wan-kenobi-s1-2022-hindi-dubbed-completed-web-series-hevc-esub-watch-online-or-download/&do=findComment&comment=329182)
-- [Raja Rani &lpar;2013&rpar; 1080p Telugu WEBDL AVC AAC ESubs 5GB](https://www.1tamilmv.space/index.php?/forums/topic/164642-raja-rani-2013-1080p-telugu-webdl-avc-aac-esubs-5gb/&do=findComment&comment=329181)
-- [Kuttavum Shikshayum &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3.4GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164385-kuttavum-shikshayum-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-34gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=329180)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
