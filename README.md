@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Asli Cricket &lpar;2022&rpar;-JIO WEB-DL [ 4k UHD H.264] - 12.3GB .Esub](https://www.1tamilmv.space/index.php?/forums/topic/164692-asli-cricket-2022-jio-web-dl-4k-uhd-h264-123gb-esub/&do=findComment&comment=329266)
-- [Don &lpar;2022&rpar; - All Video Songs - 1080p - WEB-DL - Multi DDP5.1 [Tam + Tel + Mal + Kan]](https://www.1tamilmv.space/index.php?/forums/topic/164473-don-2022-all-video-songs-1080p-web-dl-multi-ddp51-tam-tel-mal-kan/&do=findComment&comment=329265)
-- [Sarkaru Vaari Paata &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Telugu + Tamil + Malayalam&rpar; - 12.9GB - 3.4GB &amp; 1.6GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.space/index.php?/forums/topic/163429-sarkaru-vaari-paata-2022-true-web-dl-4k-1080p-720p-hevc-avc-telugu-tamil-malayalam-129gb-34gb-16gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=329264)
-- [Sarrainodu 2016 Telugu Full Movie Download | JIO WebRip 1080p 9GB 4.5GB 4GB 720p 2GB 1.8GB 480p 800MB[GDRIVE LINKS]](https://www.1tamilmv.space/index.php?/forums/topic/162925-sarrainodu-2016-telugu-full-movie-download-jio-webrip-1080p-9gb-45gb-4gb-720p-2gb-18gb-480p-800mbgdrive-links/&do=findComment&comment=329263)
-- [UPPI 2 &lpar;2015&rpar; Kannada SUNNXT WEB-DL - [1080p-4.5GB / 720p-2.3GB / 360p-900MB] - AVC - [DD+5.1 - 192kbps] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164691-uppi-2-2015-kannada-sunnxt-web-dl-1080p-45gb-720p-23gb-360p-900mb-avc-dd51-192kbps-gdrivelinks/&do=findComment&comment=329262)
+- [10 Tamil Movies - 1080p True WEB DL HEVC x265 DD5.1/AAC5.1/AAC ESub 15GB [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/164705-10-tamil-movies-1080p-true-web-dl-hevc-x265-dd51aac51aac-esub-15gb-gdrive/&do=findComment&comment=329280)
+- [༒ Sarkaru Vaari Paata &lpar;2022&rpar; AMZN WEB-DL [Telugu + Tamil + Malayalam] | 4K, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/164704-%E0%BC%92-sarkaru-vaari-paata-2022-amzn-web-dl-telugu-tamil-malayalam-4k-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=329279)
+- [12 Malayalam Movies - 1080p - AMZN / SUN NXT / SS / DSNP WEB DL - H.264 / HEVC - ESub - DD5.1 / AAC5.1 / AAC2.0 - 30GB [Gdrive]](https://www.1tamilmv.space/index.php?/forums/topic/164703-12-malayalam-movies-1080p-amzn-sun-nxt-ss-dsnp-web-dl-h264-hevc-esub-dd51-aac51-aac20-30gb-gdrive/&do=findComment&comment=329278)
+- [The Bad Guys &lpar;2022&rpar; BluRay [1080p - English - TrueHD Atmos 7.1] - H.264 - 11.3GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164702-the-bad-guys-2022-bluray-1080p-english-truehd-atmos-71-h264-113gb-esub/&do=findComment&comment=329277)
+- [Pokémon Journeys The Series &lpar;2019&rpar; EP19 - EP27 WEB-DL - 1080p [Tamil + Telugu] Opus2.0 - H.264 - 1.7GB](https://www.1tamilmv.space/index.php?/forums/topic/164701-pok%C3%A9mon-journeys-the-series-2019-ep19-ep27-web-dl-1080p-tamil-telugu-opus20-h264-17gb/&do=findComment&comment=329276)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
