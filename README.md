@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [96.2018.AMZN.WEB.DL.AVC.DDP5.1.Esubs.x264 - 1080p | 720p - 10 GB | 4.62 GB + Original Motion Picture Soundtracks](https://www.1tamilmv.space/index.php?/forums/topic/164665-962018amznwebdlavcddp51esubsx264-1080p-720p-10-gb-462-gb-original-motion-picture-soundtracks/&do=findComment&comment=329213)
-- [Vindhu Bhojanam &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB - 1GB] - [x264 - 700MB - 400MB] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164664-vindhu-bhojanam-2022-telugu-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb-gdrivelinks/&do=findComment&comment=329212)
-- [Suzhal - The Vortex &lpar;Tamil&rpar; Soundtracks And BGM [2022-FW]](https://www.1tamilmv.space/index.php?/forums/topic/164663-suzhal-the-vortex-tamil-soundtracks-and-bgm-2022-fw/&do=findComment&comment=329211)
-- [Oorellipotha Mama &lpar;2022&rpar; Telugu AHA WEB-DL - 720p - AVC - AAC - 1GB - Watch Online](https://www.1tamilmv.space/index.php?/forums/topic/164662-oorellipotha-mama-2022-telugu-aha-web-dl-720p-avc-aac-1gb-watch-online/&do=findComment&comment=329210)
-- [Oorellipotha Mama &lpar;2022&rpar; Telugu AHA WEB-DL - [1080p-1.6GB / 720p-1GB / 480p-600MB / 360p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164661-oorellipotha-mama-2022-telugu-aha-web-dl-1080p-16gb-720p-1gb-480p-600mb-360p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=329209)
+- [Laadam &lpar;2009&rpar; Tamil [1080p - Sun NXT WEB-DL AVC  DD+ 5.1 &lpar;192Kbps&rpar; - 4.3GB] [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/137144-laadam-2009-tamil-1080p-sun-nxt-web-dl-avc-dd-51-192kbps-43gb-gdrive/&do=findComment&comment=329222)
+- [Trikona &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/163888-trikona-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=329221)
+- [Dinosaur Island &lpar;2014&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.7GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164541-dinosaur-island-2014-bluray-original-audio-1080p-720p-x264-tamil-eng-17gb-850mb-x264-tamil-400mb-esub/&do=findComment&comment=329220)
+- [Dinosaur Island &lpar;2014&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.7GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164541-dinosaur-island-2014-bluray-original-audio-1080p-720p-x264-tamil-eng-17gb-850mb-x264-tamil-400mb-esub/&do=findComment&comment=329219)
+- [Atithi Devo Bhava &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 3.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164548-atithi-devo-bhava-2022-telugu-true-web-dl-1080p-720p-hevc-avc-35gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329218)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
