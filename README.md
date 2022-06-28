@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [&lpar;90S HIT HINDI SONGS&rpar;BAAZI 1995- DEERE DEERE AAPU MERE HD1080P VIDEO SONG WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/164657-90s-hit-hindi-songsbaazi-1995-deere-deere-aapu-mere-hd1080p-video-song-with-51-dts/&do=findComment&comment=329204)
-- [Malleswari &lpar;2004&rpar; Telugu Music Video Album - True Web-DL - 1080p - AVC - [DD5.1@448Kbps] - DVD Aud - [Drive Files]](https://www.1tamilmv.space/index.php?/forums/topic/164656-malleswari-2004-telugu-music-video-album-true-web-dl-1080p-avc-dd51448kbps-dvd-aud-drive-files/&do=findComment&comment=329203)
-- [Nenu Sailaja &lpar;2016&rpar; - 16Bit FLAC - ACDRip - [Aditya Music]](https://www.1tamilmv.space/index.php?/forums/topic/164655-nenu-sailaja-2016-16bit-flac-acdrip-aditya-music/&do=findComment&comment=329202)
-- [Jadaghatta &lpar;2022&rpar; Kannada TRUE WEB-DL - [720p - HD AVC - 1.3GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/164644-jadaghatta-2022-kannada-true-web-dl-720p-hd-avc-13gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=329201)
-- [Indian &lpar;1996&rpar; [ Tamil - 1080p - AVC - UNTOUCHED - AAC2.0 - x264 - 3.7GB]](https://www.1tamilmv.space/index.php?/forums/topic/164279-indian-1996-tamil-1080p-avc-untouched-aac20-x264-37gb/&do=findComment&comment=329200)
+- [Vindhu Bhojanam &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB - 1GB] - [x264 - 700MB - 400MB] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164664-vindhu-bhojanam-2022-telugu-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb-gdrivelinks/&do=findComment&comment=329212)
+- [Suzhal - The Vortex &lpar;Tamil&rpar; Soundtracks And BGM [2022-FW]](https://www.1tamilmv.space/index.php?/forums/topic/164663-suzhal-the-vortex-tamil-soundtracks-and-bgm-2022-fw/&do=findComment&comment=329211)
+- [Oorellipotha Mama &lpar;2022&rpar; Telugu AHA WEB-DL - 720p - AVC - AAC - 1GB - Watch Online](https://www.1tamilmv.space/index.php?/forums/topic/164662-oorellipotha-mama-2022-telugu-aha-web-dl-720p-avc-aac-1gb-watch-online/&do=findComment&comment=329210)
+- [Oorellipotha Mama &lpar;2022&rpar; Telugu AHA WEB-DL - [1080p-1.6GB / 720p-1GB / 480p-600MB / 360p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164661-oorellipotha-mama-2022-telugu-aha-web-dl-1080p-16gb-720p-1gb-480p-600mb-360p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=329209)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=329208)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
