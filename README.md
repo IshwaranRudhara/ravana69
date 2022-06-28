@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [96.2018.AMZN.WEB.DL.AVC.DDP5.1.Esubs.x264 - 1080p | 720p - 10 GB | 4.62 GB + Original Motion Picture Soundtracks](https://www.1tamilmv.space/index.php?/forums/topic/164665-962018amznwebdlavcddp51esubsx264-1080p-720p-10-gb-462-gb-original-motion-picture-soundtracks/&do=findComment&comment=329213)
 - [Vindhu Bhojanam &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB - 1GB] - [x264 - 700MB - 400MB] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164664-vindhu-bhojanam-2022-telugu-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb-gdrivelinks/&do=findComment&comment=329212)
 - [Suzhal - The Vortex &lpar;Tamil&rpar; Soundtracks And BGM [2022-FW]](https://www.1tamilmv.space/index.php?/forums/topic/164663-suzhal-the-vortex-tamil-soundtracks-and-bgm-2022-fw/&do=findComment&comment=329211)
 - [Oorellipotha Mama &lpar;2022&rpar; Telugu AHA WEB-DL - 720p - AVC - AAC - 1GB - Watch Online](https://www.1tamilmv.space/index.php?/forums/topic/164662-oorellipotha-mama-2022-telugu-aha-web-dl-720p-avc-aac-1gb-watch-online/&do=findComment&comment=329210)
 - [Oorellipotha Mama &lpar;2022&rpar; Telugu AHA WEB-DL - [1080p-1.6GB / 720p-1GB / 480p-600MB / 360p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164661-oorellipotha-mama-2022-telugu-aha-web-dl-1080p-16gb-720p-1gb-480p-600mb-360p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=329209)
-- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; &lpar;HD + DD5.1 Original Auds&rpar; - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 23GB - 8.1GB - 3.2GB - 1.8GB &amp; 900MB] - [x264 - &lpar;MULTI&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164300-doctor-strange-in-the-multiverse-of-madness-2022-hd-dd51-original-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-23gb-81gb-32gb-18gb-900mb-x264-multi-700mb-450mb-250mb-esub/&do=findComment&comment=329208)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
