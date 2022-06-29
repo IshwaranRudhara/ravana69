@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sarkaru Vaari Paata &lpar;2022&rpar; Tamil TRUE WEB-DL - 1080p 720p- AVC - UNTOUCHED - [Tamil + Malayalam] - &lpar;DD+ 5.1 - 640Kbps &amp; AAC 2.0&rpar; - 7GB 3.2GB 2.8GB 1.5GB - ESub]. GDrive 💥](https://www.1tamilmv.space/index.php?/forums/topic/164722-sarkaru-vaari-paata-2022-tamil-true-web-dl-1080p-720p-avc-untouched-tamil-malayalam-dd-51-640kbps-aac-20-7gb-32gb-28gb-15gb-esub-gdrive-%F0%9F%92%A5/&do=findComment&comment=329310)
 - [Vaaitha &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164721-vaaitha-2022-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-61gb-23gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329309)
 - [Vaaitha &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164721-vaaitha-2022-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-61gb-23gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329308)
 - [CBI 5: The Brain &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam + Hindi&rpar; - 11GB - 6.4GB - 2.8GB - 1.4GB - 900MB - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/163848-cbi-5-the-brain-2022-true-web-dl-4k-1080p-720p-avc-tamil-telugu-malayalam-hindi-11gb-64gb-28gb-14gb-900mb-600mb-300mb-esub/&do=findComment&comment=329307)
 - [New Project 25 [A97DC40].png](https://www.1tamilmv.space/index.php?/gallery/image/36-new-project-25-a97dc40png/)
-- [Vaaitha &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164721-vaaitha-2022-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-61gb-23gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329306)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
