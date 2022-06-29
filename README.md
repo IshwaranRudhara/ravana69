@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sarkaru Vaari Paata &lpar;2022&rpar; Multi [Telugu+Tamil+Malayalam] &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.space/index.php?/forums/topic/164717-sarkaru-vaari-paata-2022-multi-telugutamilmalayalam-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=329300)
+- [Sarkaru Vaari Paata &lpar;2022&rpar; Telugu Rented &lpar;MUSIC VIDEO ALBUM&rpar; 4K WEB-HD UNTOUCHED - HEVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.space/index.php?/forums/topic/164716-sarkaru-vaari-paata-2022-telugu-rented-music-video-album-4k-web-hd-untouched-hevc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=329299)
+- [Sarkaru Vaari Paata &lpar;2022&rpar; Telugu Rented Version &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.space/index.php?/forums/topic/164715-sarkaru-vaari-paata-2022-telugu-rented-version-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=329298)
+- [4K 2160p 60FPS PREMIUM QUALITY UHD Songs/Clips/UHD Photos @TELEGRAM | UHD HUNTERYT](https://www.1tamilmv.space/index.php?/forums/topic/164714-4k-2160p-60fps-premium-quality-uhd-songsclipsuhd-photos-telegram-uhd-hunteryt/&do=findComment&comment=329297)
 - [Sarkaru Vaari Paata &lpar;2022&rpar; All Video Songs 2160p HQ SDR AMZN WEB-DL x265 &lpar;DD+ 5.1 – 640Kbps&rpar; [Tel + Tam + Mal] ESubs](https://www.1tamilmv.space/index.php?/forums/topic/164689-sarkaru-vaari-paata-2022-all-video-songs-2160p-hq-sdr-amzn-web-dl-x265-dd-51-%E2%80%93-640kbps-tel-tam-mal-esubs/&do=findComment&comment=329296)
-- [Vijay Tv Serial 29/06/2022](https://www.1tamilmv.space/index.php?/forums/topic/164713-vijay-tv-serial-29062022/&do=findComment&comment=329295)
-- [50 Malayalam Movies - 1080p - AMZN / SUN NXT / MX / DSNP WEB DL - H.264 - DD5.1 / DDP2.0 / AAC2.0 - ESub - 250GD [Gdrive]](https://www.1tamilmv.space/index.php?/forums/topic/164532-50-malayalam-movies-1080p-amzn-sun-nxt-mx-dsnp-web-dl-h264-dd51-ddp20-aac20-esub-250gd-gdrive/&do=findComment&comment=329294)
-- [Anek 2022 Hindi 720p.10bit.WEBRip.6CH.x265 / 1080p.10bit.WEBRip.6CH.x265](https://www.1tamilmv.space/index.php?/forums/topic/164712-anek-2022-hindi-720p10bitwebrip6chx265-1080p10bitwebrip6chx265/&do=findComment&comment=329293)
-- [Sarkaru Vaari Paata &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - 12GB - 7.4GB - 3.5GB - 2.8GB - 1.6GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164677-sarkaru-vaari-paata-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-12gb-74gb-35gb-28gb-16gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329292)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
