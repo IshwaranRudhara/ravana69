@@ -61,9 +61,5 @@
 ![github contribution grid snake animation](https://raw.githubusercontent.com/ravana69/ravana69/output/github-contribution-grid-snake-dark.svg#gh-dark-mode-only)
 
 # Humans
-
-<img width="170" alt="JeanJimenezJoseph" src="https://user-images.githubusercontent.com/47528708/176115222-32c30d97-3f9d-486e-9fd3-563e3c000f31.png"> <img width="170" alt="JohanaMedinaLeon" src="https://user-images.githubusercontent.com/47528708/176115237-271c2701-4568-4566-bf92-3f5ce5afbc15.png"> <img width="170" alt="MariaRamirez" src="https://user-images.githubusercontent.com/47528708/176115246-b6a1b41f-c3b8-42b5-b464-15a3f387c582.png"> <img width="170" alt="MarieeJuarez" src="https://user-images.githubusercontent.com/47528708/176115252-c64a2c76-a59f-4a15-93aa-3d7775c20fbc.png"> <img width="170" alt="MergensanaAmar" src="https://user-images.githubusercontent.com/47528708/176115255-d0f6076c-7b13-4b35-846a-a26746f9cf31.png"> <img width="170" alt="NebaneAbienwi" src="https://user-images.githubusercontent.com/47528708/176115256-850c570a-ae70-46f9-be32-baab9e1c46a6.png"> <img width="170" alt="CarlosVasquez" src="https://user-images.githubusercontent.com/47528708/176115259-7f1e022e-3d1f-4183-b416-3e8f8fab0c2e.png"> <img width="170" alt="EfrainDeLaRosa" src="https://user-images.githubusercontent.com/47528708/176115265-2ad5dc17-47ad-468f-bb24-a5f773fa1bc4.png">
-
-
 <img width="170" alt="human" src="https://user-images.githubusercontent.com/47528708/176413829-c142d478-1c96-4c3c-a2a4-2dd35374c335.gif">
 
