@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Minions: The Rise of Gru &lpar;2022&rpar; English HDCAM-Rip - 720p - x264 - AAC - 550MB](https://www.1tamilmv.space/index.php?/forums/topic/164743-minions-the-rise-of-gru-2022-english-hdcam-rip-720p-x264-aac-550mb/&do=findComment&comment=329343)
 - [Veera Bhoga Vasantha Rayalu &lpar;2018&rpar; Telugu JC WEB-DL - [1080p-7.5GB-4GB / 720p-1.1GB / 480p-800MB / 360p-600MB / 240p-400MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164742-veera-bhoga-vasantha-rayalu-2018-telugu-jc-web-dl-1080p-75gb-4gb-720p-11gb-480p-800mb-360p-600mb-240p-400mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=329342)
 - [118 &lpar;2019&rpar; Telugu JC WEB-DL - [1080p-7gb-4GB / 720p-1.2GB / 480p-800MB / 360p-600MB / 240p-400MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164738-118-2019-telugu-jc-web-dl-1080p-7gb-4gb-720p-12gb-480p-800mb-360p-600mb-240p-400mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=329341)
 - [Pandhem Kodi 2 &lpar;2018&rpar; Telugu JC WEB-DL - [1080p-9GB-4.5GB / 720p-1.4GB / 480p-1GB / 360p-750MB / 240p-500MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164741-pandhem-kodi-2-2018-telugu-jc-web-dl-1080p-9gb-45gb-720p-14gb-480p-1gb-360p-750mb-240p-500mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=329340)
 - [Pandhem Kodi 2 &lpar;2018&rpar; Telugu JC WEB-DL - [1080p-9GB-4.5GB / 720p-1.4GB / 480p-1GB / 360p-750MB / 240p-500MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164741-pandhem-kodi-2-2018-telugu-jc-web-dl-1080p-9gb-45gb-720p-14gb-480p-1gb-360p-750mb-240p-500mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=329339)
-- [Chi La Sow &lpar;2018&rpar; Telugu JC WEB-DL - [1080p-7GB-4GB / 720p-1.1GB / 480p-800MB / 360p-600MB / 240p-400MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164739-chi-la-sow-2018-telugu-jc-web-dl-1080p-7gb-4gb-720p-11gb-480p-800mb-360p-600mb-240p-400mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=329338)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
