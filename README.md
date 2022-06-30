@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Virata Parvam &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 8.1GB - 3.8GB &amp; 1.5GB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164787-virata-parvam-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-81gb-38gb-15gb-x264-800mb-500mb-250mb-esub/&do=findComment&comment=329426)
+- [Samrat Prithviraj &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.2GB] - [x264 - 700MB &amp; 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164791-samrat-prithviraj-2022-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329425)
 - [BEAST &lpar;2022&rpar;  [Telugu+Tamil] - Complete Music Video Album - |sunNXT| - WEBD - [4K] - H265 - [Atmos5.1@448Kbps] - Original - 1.4GB](https://www.1tamilmv.space/index.php?/forums/topic/164790-beast-2022-telugutamil-complete-music-video-album-sunnxt-webd-4k-h265-atmos51448kbps-original-14gb/&do=findComment&comment=329424)
 - [Virata Parvam &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 3.8GB - 2.4GB - 1.4GB &amp; 650MB] - [x264 / XviD - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164784-virata-parvam-2022-telugu-true-web-dl-1080p-720p-hevc-avc-38gb-24gb-14gb-650mb-x264-xvid-700mb-400mb-250mb-esub/&do=findComment&comment=329423)
 - [Robot &lpar;2010&rpar; Complete Bluray AVC DTS-HDMA 5.1-DTOne - 10th Anniversary](https://www.1tamilmv.space/index.php?/forums/topic/164765-robot-2010-complete-bluray-avc-dts-hdma-51-dtone-10th-anniversary/&do=findComment&comment=329422)
-- [Dhaakad &lpar;2022&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB &amp; 1.9GB &amp; 1.2GB - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.space/index.php?/forums/topic/164789-dhaakad-2022-hindi-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-aac-20-46gb-19gb-12gb-x264-700mb-400mb/&do=findComment&comment=329421)
-- [Dhaakad &lpar;2022&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB &amp; 1.9GB &amp; 1.2GB - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.space/index.php?/forums/topic/164789-dhaakad-2022-hindi-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-aac-20-46gb-19gb-12gb-x264-700mb-400mb/&do=findComment&comment=329420)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
