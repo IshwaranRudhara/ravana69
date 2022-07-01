@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Terminal List &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada] | 1080p, 720p, 480p | HEVC | DDP 5.1 | MSub](https://www.1tamilmv.space/index.php?/forums/topic/164813-the-terminal-list-2022-s01-ep-01-08-web-dl-telugu-tamil-hindi-malayalam-kannada-1080p-720p-480p-hevc-ddp-51-msub/&do=findComment&comment=329471)
+- [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;39-42&rpar; Tamil TRUE WEB-DL 720 p](https://www.1tamilmv.space/index.php?/forums/topic/164812-kanaa-kaanum-kaalangal-2022-s01-ep-39-42-tamil-true-web-dl-720-p/&do=findComment&comment=329470)
 - [Dhaakad &lpar;2022&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB &amp; 1.9GB &amp; 1.2GB - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.space/index.php?/forums/topic/164789-dhaakad-2022-hindi-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-aac-20-46gb-19gb-12gb-x264-700mb-400mb/&do=findComment&comment=329469)
 - [Virata Parvam &lpar;2022&rpar; Telugu Tamil Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 6.9GB &amp; 1.2GB] - ESub_MZA76_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.space/index.php?/forums/topic/164806-virata-parvam-2022-telugu-tamil-malayalam-true-web-dl-1080p-720p-avc-69gb-12gb-esub_mza76_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=329468)
 - [Virata Parvam &lpar;2022&rpar; Telugu NF TRUE WEB-DL - [1080p &amp; 720p - AVC - 6.9GB - 2.8GB - 1.4GB &amp; 1GB] - [x264 - 700MB - 400MB] - ESub - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164809-virata-parvam-2022-telugu-nf-true-web-dl-1080p-720p-avc-69gb-28gb-14gb-1gb-x264-700mb-400mb-esub-gdrivelinks/&do=findComment&comment=329467)
-- [Samrat Prithviraj &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 10GB - 3.8GB - 2.6GB - 1.7GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164785-samrat-prithviraj-2022-true-web-dl-1080p-720p-hevc-avc-tamil-telugu-malayalam-10gb-38gb-26gb-17gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329466)
-- [SIVA MANASULA SHAKTHI 2009 ORIGINAL AYNGARAN COMPLETE DVD5 WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/164811-siva-manasula-shakthi-2009-original-ayngaran-complete-dvd5-with-51-dts/&do=findComment&comment=329465)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
