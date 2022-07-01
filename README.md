@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Anya&#39;s Tutorial &lpar;2022&rpar; S01 E[01-07] - Aha-WEB-DL-DDP5.1-H265-  [Tamil] Showflix](https://www.1tamilmv.space/index.php?/forums/topic/164814-anyas-tutorial-2022-s01-e01-07-aha-web-dl-ddp51-h265-%C2%A0tamil-showflix/&do=findComment&comment=329473)
 - [Stranger Things &lpar;2022&rpar; S04 VOL.1 EP&lpar;01-07&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6GB - 2.2GB &amp; 900MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/163063-stranger-things-2022-s04-vol1-ep01-07-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-6gb-22gb-900mb-esub/&do=findComment&comment=329472)
 - [The Terminal List &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada + English] | 1080p, 720p, 480p | HEVC | DDP 5.1 | MSub](https://www.1tamilmv.space/index.php?/forums/topic/164813-the-terminal-list-2022-s01-ep-01-08-web-dl-telugu-tamil-hindi-malayalam-kannada-english-1080p-720p-480p-hevc-ddp-51-msub/&do=findComment&comment=329471)
 - [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;39-42&rpar; Tamil TRUE WEB-DL 720 p](https://www.1tamilmv.space/index.php?/forums/topic/164812-kanaa-kaanum-kaalangal-2022-s01-ep-39-42-tamil-true-web-dl-720-p/&do=findComment&comment=329470)
 - [Dhaakad &lpar;2022&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB &amp; 1.9GB &amp; 1.2GB - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.space/index.php?/forums/topic/164789-dhaakad-2022-hindi-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-aac-20-46gb-19gb-12gb-x264-700mb-400mb/&do=findComment&comment=329469)
-- [Virata Parvam &lpar;2022&rpar; Telugu Tamil Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 6.9GB &amp; 1.2GB] - ESub_MZA76_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.space/index.php?/forums/topic/164806-virata-parvam-2022-telugu-tamil-malayalam-true-web-dl-1080p-720p-avc-69gb-12gb-esub_mza76_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=329468)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
