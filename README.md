@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rocketry &lpar;2022&rpar; Hindi HQ PreDVD - [720p - x264 - 1.2GB | x264 - 700MB - 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/164848-rocketry-2022-hindi-hq-predvd-720p-x264-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=329542)
+- [Om The Battle Within &lpar;2022&rpar; Hindi HQ PreDVD - [720p - x264 - 1.3GB | x264 - 700MB - 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/164847-om-the-battle-within-2022-hindi-hq-predvd-720p-x264-13gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=329541)
+- [Anya&#39;s Tutorial Season-1 &lpar;2022&rpar; Telugu WEB-DL - 1-7 Episodes - 1080p - ESubs &lpar;MX Player &amp; Playit Links &amp; Mirror Download Links&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/164845-anyas-tutorial-season-1-2022-telugu-web-dl-1-7-episodes-1080p-esubs-mx-player-playit-links-mirror-download-links/&do=findComment&comment=329540)
 - [60 Tamil Movies - 1080p - SUN NXT / AMZN / SS WEBDL - AVC / HEVC - DD5.1 / AAC5.1 / AAC - Esub - 200GB [GDrive]](https://www.1tamilmv.space/index.php?/forums/topic/164846-60-tamil-movies-1080p-sun-nxt-amzn-ss-webdl-avc-hevc-dd51-aac51-aac-esub-200gb-gdrive/&do=findComment&comment=329539)
 - [Anya&#39;s Tutorial Season-1 &lpar;2022&rpar; Telugu WEB-DL - 1-7 Episodes - 1080p - ESubs &lpar;MX Player &amp; Playit Links &amp; Mirror Download Links&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/164845-anyas-tutorial-season-1-2022-telugu-web-dl-1-7-episodes-1080p-esubs-mx-player-playit-links-mirror-download-links/&do=findComment&comment=329538)
-- [Stranger Things &lpar;2022&rpar; S04 VOL.2 EP&lpar;08-09&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 4.5GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164819-stranger-things-2022-s04-vol2-ep08-09-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-45gb-2gb-800mb-esub/&do=findComment&comment=329537)
-- [Vaaitha &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164721-vaaitha-2022-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-61gb-23gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329536)
-- [Keedam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164788-keedam-2022-malayalam-true-web-dl-1080p-720p-avc-16gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=329535)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
