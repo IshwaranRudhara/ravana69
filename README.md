@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathala Pathala  &lpar;From &quot;Vikram&quot;&rpar; Full Video Song 4K &amp; 1080p &amp; 720p](https://www.1tamilmv.space/index.php?/forums/topic/164843-pathala-pathala-from-vikram-full-video-song-4k-1080p-720p/&do=findComment&comment=329530)
+- [Pathala Pathala  &lpar;From &quot;Vikram&quot;&rpar; Full Video Song 4K &amp; 1080p &amp; 720p](https://www.1tamilmv.space/index.php?/forums/topic/164843-pathala-pathala-from-vikram-full-video-song-4k-1080p-720p/&do=findComment&comment=329529)
 - [Anya’s Tutorial &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; WEB-DL Tamil | 2160p, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.space/index.php?/forums/topic/164842-anya%E2%80%99s-tutorial-2022-s01-ep-01-07-web-dl-tamil-2160p-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=329528)
 - [Stranger Things &lpar;2022&rpar; S04 VOL.2 EP&lpar;08-09&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 4.5GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164819-stranger-things-2022-s04-vol2-ep08-09-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-45gb-2gb-800mb-esub/&do=findComment&comment=329527)
 - [Stranger Things &lpar;2016&rpar; S01 - S04 &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - ESub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/164841-stranger-things-2016-s01-s04-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-esub-google-drive/&do=findComment&comment=329526)
-- [Rashtra Kavach OM [2022] Hindi S-Print](https://www.1tamilmv.space/index.php?/forums/topic/164840-rashtra-kavach-om-2022-hindi-s-print/&do=findComment&comment=329525)
-- [Minions: The Rise of Gru &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/164839-minions-the-rise-of-gru-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=329524)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
