@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329635)
-- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329634)
-- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329632)
-- [KANDA NAAL MUDHAL 2005- MERKE MERKE DVD9 RIP VIDEO SONG WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/164905-kanda-naal-mudhal-2005-merke-merke-dvd9-rip-video-song-with-51-dts/&do=findComment&comment=329631)
-- [Anya’s Tutorial &lpar;2022&rpar; Tamil S01 EP &lpar;01-07&rpar; WEB-DL  | 2160p, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.space/index.php?/forums/topic/164904-anya%E2%80%99s-tutorial-2022-tamil-s01-ep-01-07-web-dl-2160p-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=329630)
+- [Telugu Movie Collection Mega Pack Year &lpar;2014&rpar; - &lpar;No-Wm&#39;s No-UrlTags&rpar; - Only On TMV](https://www.1tamilmv.space/index.php?/forums/topic/93702-telugu-movie-collection-mega-pack-year-2014-no-wms-no-urltags-%C2%A0only-on-tmv/&do=findComment&comment=329645)
+- [Telugu Movie Collection Mega Pack Year &lpar;2014&rpar; - &lpar;No-Wm&#39;s No-UrlTags&rpar; - Only On TMV](https://www.1tamilmv.space/index.php?/forums/topic/93702-telugu-movie-collection-mega-pack-year-2014-no-wms-no-urltags-%C2%A0only-on-tmv/&do=findComment&comment=329644)
+- [Yuvan Shankar Raja - Discography &lpar;FLAC 16bit-44.1kHz&rpar; &lpar;17 GB&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/152628-yuvan-shankar-raja-discography-flac-16bit-441khz-17-gb/&do=findComment&comment=329643)
+- [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.space/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=329642)
+- [BADRI 2001 REMASTERD MOVIE VIDEO SONGS HD1080P WITH 5.1 DTS.&lpar; PYRAMID 5.1 DTS REMUXED&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/164911-badri-2001-remasterd-movie-video-songs-hd1080p-with-51-dts-pyramid-51-dts-remuxed/&do=findComment&comment=329641)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
