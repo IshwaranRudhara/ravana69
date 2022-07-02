@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329635)
+- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329634)
+- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329632)
 - [KANDA NAAL MUDHAL 2005- MERKE MERKE DVD9 RIP VIDEO SONG WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/164905-kanda-naal-mudhal-2005-merke-merke-dvd9-rip-video-song-with-51-dts/&do=findComment&comment=329631)
 - [Anya’s Tutorial &lpar;2022&rpar; Tamil S01 EP &lpar;01-07&rpar; WEB-DL  | 2160p, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.space/index.php?/forums/topic/164904-anya%E2%80%99s-tutorial-2022-tamil-s01-ep-01-07-web-dl-2160p-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=329630)
-- [1945 &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.8GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164903-1945-2022-tamil-original-version%C2%A0true-web-dl-1080p-720p-avc-dd51-384kbps-48gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329629)
-- [Angels Last Mission Love S01 &lpar;Ep 01-16&rpar; Mx-Web DL - 1080p - Tamil Dubbed](https://www.1tamilmv.space/index.php?/forums/topic/164902-angels-last-mission-love-s01-ep-01-16-mx-web-dl-1080p-tamil-dubbed/&do=findComment&comment=329628)
-- [Coffee With Kadhal - Rum Bum Bum - Music Video - 1080P &amp; 4K - DD5.1 Upmixed - GDRIVE](https://www.1tamilmv.space/index.php?/forums/topic/164901-coffee-with-kadhal-rum-bum-bum-music-video-1080p-4k-dd51-upmixed-gdrive/&do=findComment&comment=329627)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
