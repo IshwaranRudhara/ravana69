@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Adhurs - - Telugu - Bluray - 1080P - VIDEOSONGS](https://www.1tamilmv.space/index.php?/forums/topic/116009-adhurs-telugu-bluray-1080p-videosongs/&do=findComment&comment=329605)
+- [Adhurs - - Telugu - Bluray - 1080P - VIDEOSONGS](https://www.1tamilmv.space/index.php?/forums/topic/164889-adhurs-telugu-bluray-1080p-videosongs/&do=findComment&comment=329604)
+- [Adhurs - - Telugu - Bluray - 1080P - VIDEOSONGS](https://www.1tamilmv.space/index.php?/forums/topic/164889-adhurs-telugu-bluray-1080p-videosongs/&do=findComment&comment=329603)
 - [Anyas Tutorial &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB &amp; 1GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164888-anyas-tutorial-2022-s01-ep-01-07-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-24gb-1gb-x264-500mb-esub/&do=findComment&comment=329602)
 - [Anyas Tutorial &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB &amp; 1GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164871-anyas-tutorial-2022-s01-ep-01-07-tamil-true-web-dl-1080p-720p-avc-dd51-384kbps-24gb-1gb-x264-500mb-esub/&do=findComment&comment=329601)
-- [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.space/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=329600)
-- [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.space/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=329599)
-- [Gulaebaghavali &lpar;2018&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 6GB - 4GB - 2.5GB - 1.5GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 450MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/126886-gulaebaghavali-2018-telugu-original-version-true-web-dl-1080p-720p-avc-hevc-6gb-4gb-25gb-15gb-14gb-900mb-x264-700mb-450mb-esub/&do=findComment&comment=329598)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
