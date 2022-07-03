@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Wrong Turn - Foundation &lpar;2021&rpar; AMZN - WEB-DL - 1080p [Tamil + Hindi] DDP2.0 &lpar;224Kbps&rpar; + [English - DDP5.1 &lpar;640Kbps&rpar;] - H.264 - 8GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164942-wrong-turn-foundation-2021-amzn-web-dl-1080p-tamil-hindi-ddp20-224kbps-english-ddp51-640kbps-h264-8gb-esub/&do=findComment&comment=329692)
-- [Peranmai &lpar;2009&rpar; SunNXT - WEB-DL [1080p - Tamil - DD+ 5.1 &lpar;192Kbps&rpar;] - H.264 - 6GB](https://www.1tamilmv.space/index.php?/forums/topic/164941-peranmai-2009-sunnxt-web-dl-1080p-tamil-dd-51-192kbps-h264-6gb/&do=findComment&comment=329691)
-- [M.Kumaran Son Of Mahalakshmi &lpar;2004&rpar; SunNXT - WEB-DL [1080p - Tamil - DD+ 5.1 &lpar;192Kbps&rpar;] - H.264 - 7GB](https://www.1tamilmv.space/index.php?/forums/topic/164940-mkumaran-son-of-mahalakshmi-2004-sunnxt-web-dl-1080p-tamil-dd-51-192kbps-h264-7gb/&do=findComment&comment=329690)
-- [Romeo Juliet &lpar;2015&rpar; SunNXT - WEB-DL [1080p - Tamil - DD+ 5.1 &lpar;192Kbps&rpar;] - H.264 - 5.5GB](https://www.1tamilmv.space/index.php?/forums/topic/164939-romeo-juliet-2015-sunnxt-web-dl-1080p-tamil-dd-51-192kbps-h264-55gb/&do=findComment&comment=329689)
-- [Thillalangadi &lpar;2010&rpar; SunNXT - WEB-DL [1080p - Tamil - DDP5.1 &lpar;192Kbps&rpar;] - H.264 - 5.1GB](https://www.1tamilmv.space/index.php?/forums/topic/164938-thillalangadi-2010-sunnxt-web-dl-1080p-tamil-ddp51-192kbps-h264-51gb/&do=findComment&comment=329688)
+- [Neeli Neeli - Alludu Seenu - FHD - Bluray - 1080P - 305MB](https://www.1tamilmv.space/index.php?/forums/topic/130564-neeli-neeli-alludu-seenu-fhd-bluray-1080p-305mb/&do=findComment&comment=329701)
+- [Neeli Neeli - Alludu Seenu - FHD - Bluray - 1080P - 305MB](https://www.1tamilmv.space/index.php?/forums/topic/103704-neeli-neeli-alludu-seenu-fhd-bluray-1080p-305mb/&do=findComment&comment=329700)
+- [Alludu Seenu - Telugu - Full Video Songs - 2014 - Itunes - FHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/149713-alludu-seenu-telugu-full-video-songs-2014-itunes-fhd-1080p/&do=findComment&comment=329699)
+- [Alludu Seenu - Telugu - Full Video Songs - 2014 - Itunes - FHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/164946-alludu-seenu-telugu-full-video-songs-2014-itunes-fhd-1080p/&do=findComment&comment=329698)
+- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329697)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
