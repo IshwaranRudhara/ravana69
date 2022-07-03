@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Major &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164906-major-2022-telugu-original-version-true-web-dl-1080p-720p-avc-dd51-640kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329675)
+- [4K 2160p 60FPS PREMIUM QUALITY UHD Songs/Clips/UHD Photos @TELEGRAM | UHD HUNTERYT](https://www.1tamilmv.space/index.php?/forums/topic/164931-4k-2160p-60fps-premium-quality-uhd-songsclipsuhd-photos-telegram-uhd-hunteryt/&do=findComment&comment=329674)
+- [Vijayendra Varma &lpar;2004&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GdriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164930-vijayendra-varma-2004-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=329673)
+- [[60FPS].Stranger.Things.S04.PII.E[08-09].Chapter.Nine.The.Piggyback.1080p.NF.WEBRip.Multi.DDP5.1.Atmos.H.265.Homelander - 11.57 GB | 7 GB](https://www.1tamilmv.space/index.php?/forums/topic/164929-60fpsstrangerthingss04piie08-09chapterninethepiggyback1080pnfwebripmultiddp51atmosh265homelander-1157-gb-7-gb/&do=findComment&comment=329672)
 - [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.space/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=329671)
-- [Pannikutty.2022.Original.Motion.Picture.Soundtrack.K.Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 207 MB | 111 MB | 39 MB | 19 MB](https://www.1tamilmv.space/index.php?/forums/topic/164928-pannikutty2022originalmotionpicturesoundtrackkmusical-flac-24bit16bit-mp3-320kbps128kbps-207-mb-111-mb-39-mb-19-mb/&do=findComment&comment=329670)
-- [UPCOMMING COMPLETE DVD5 &lpar; UNNIKRISHNAN HITS &rpar; WITH 5.1 DTS.....](https://www.1tamilmv.space/index.php?/forums/topic/164927-upcomming-complete-dvd5-unnikrishnan-hits-with-51-dts/&do=findComment&comment=329669)
-- [Nee Jathaga Nenundali &lpar;2014&rpar; Telugu True HDRip [1080p &amp; 720p - 2.5GB - 1.4GB] H.264 DD5.1 Esub [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/164926-nee-jathaga-nenundali-2014-telugu-true-hdrip-1080p-720p-25gb-14gb-h264-dd51-esub-gdrive/&do=findComment&comment=329668)
-- [Jayammu Nischayammu Raa &lpar;1989&rpar; Telugu JC TRUE WEB-DL - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GdriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164925-jayammu-nischayammu-raa-1989-telugu-jc-true-web-dl-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=329667)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
