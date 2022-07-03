@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.space/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=329671)
+- [Pannikutty.2022.Original.Motion.Picture.Soundtrack.K.Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 207 MB | 111 MB | 39 MB | 19 MB](https://www.1tamilmv.space/index.php?/forums/topic/164928-pannikutty2022originalmotionpicturesoundtrackkmusical-flac-24bit16bit-mp3-320kbps128kbps-207-mb-111-mb-39-mb-19-mb/&do=findComment&comment=329670)
 - [UPCOMMING COMPLETE DVD5 &lpar; UNNIKRISHNAN HITS &rpar; WITH 5.1 DTS.....](https://www.1tamilmv.space/index.php?/forums/topic/164927-upcomming-complete-dvd5-unnikrishnan-hits-with-51-dts/&do=findComment&comment=329669)
 - [Nee Jathaga Nenundali &lpar;2014&rpar; Telugu True HDRip [1080p &amp; 720p - 2.5GB - 1.4GB] H.264 DD5.1 Esub [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/164926-nee-jathaga-nenundali-2014-telugu-true-hdrip-1080p-720p-25gb-14gb-h264-dd51-esub-gdrive/&do=findComment&comment=329668)
 - [Jayammu Nischayammu Raa &lpar;1989&rpar; Telugu JC TRUE WEB-DL - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GdriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164925-jayammu-nischayammu-raa-1989-telugu-jc-true-web-dl-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=329667)
-- [Bhairava Dweepam 1994 Telugu 1080p ETV WIN WEB DL H.264 AAC 2.7GB [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/164924-bhairava-dweepam-1994-telugu-1080p-etv-win-web-dl-h264-aac-27gb-gdrive/&do=findComment&comment=329666)
-- [Brochevarevarura &lpar;2019&rpar; Telugu AMZN WEBDL [1080p-5GB-3.5GB-1.2GB / 720p-750MB / x264-HDRip-400MB] - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - ESub - [GdriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/164923-brochevarevarura-2019-telugu-amzn-webdl-1080p-5gb-35gb-12gb-720p-750mb-x264-hdrip-400mb-avc-dd51-640kbps-esub-gdrivelinks/&do=findComment&comment=329665)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
