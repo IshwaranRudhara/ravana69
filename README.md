@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bedeviled &lpar;2016&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164907-bedeviled-2016-bluray-original-audio-1080p-720p-x264-tamil-eng-2gb-1gb-x264-tamil-400mb-esub/&do=findComment&comment=329716)
+- [Django Unchained &lpar;2012&rpar;[720p - BDRip - [Tamil + Hindi + Eng] - x264 - 1.3GB - ESubs]](https://www.1tamilmv.space/index.php?/forums/topic/164955-django-unchained-2012720p-bdrip-tamil-hindi-eng-x264-13gb-esubs/&do=findComment&comment=329715)
+- [Titanic  &lpar;Tamil&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/164954-titanic-tamil/&do=findComment&comment=329714)
 - [[Gdrive] Major &lpar;2022&rpar; Telugu NF  TRUE WEB-DL - [1080p-4GB-3GB-1.7GB / 720p-1GB / 540p-400MB] - x264 - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - ESubs -[Gdrive]](https://www.1tamilmv.space/index.php?/forums/topic/164953-gdrive-major-2022-telugu-nf%C2%A0-true-web-dl-1080p-4gb-3gb-17gb-720p-1gb-540p-400mb-x264-dd51-640kbps-aac-20-esubs-gdrive/&do=findComment&comment=329713)
 - [Apollo 13 &lpar;1995&rpar;[720p - BDRip - [Tamil + Telugu + Hindi + Eng]](https://www.1tamilmv.space/index.php?/forums/topic/164952-apollo-13-1995720p-bdrip-tamil-telugu-hindi-eng/&do=findComment&comment=329712)
-- [Harris Jayaraj - Vaadi Vaadi [Music Video] - 1080P &amp; 4K - DD5.1 Upmixed - GD](https://www.1tamilmv.space/index.php?/forums/topic/164951-harris-jayaraj-vaadi-vaadi-music-video-1080p-4k-dd51-upmixed-gd/&do=findComment&comment=329711)
-- [The Terminal List &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.9GB - 3GB &amp; 1.2GB &amp; 950MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164820-the-terminal-list-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-69gb-3gb-12gb-950mb-esub/&do=findComment&comment=329710)
-- [[60FPS].Stranger.Things.S04.PII.E[08-09].Chapter.Nine.The.Piggyback.1080p.NF.WEBRip.Multi.DDP5.1.Atmos.H.265.Homelander - 11.57 GB | 7 GB](https://www.1tamilmv.space/index.php?/forums/topic/164929-60fpsstrangerthingss04piie08-09chapterninethepiggyback1080pnfwebripmultiddp51atmosh265homelander-1157-gb-7-gb/&do=findComment&comment=329709)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
