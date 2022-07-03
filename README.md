@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Terminal List &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.9GB - 3GB &amp; 1.2GB &amp; 950MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164820-the-terminal-list-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-69gb-3gb-12gb-950mb-esub/&do=findComment&comment=329710)
+- [[60FPS].Stranger.Things.S04.PII.E[08-09].Chapter.Nine.The.Piggyback.1080p.NF.WEBRip.Multi.DDP5.1.Atmos.H.265.Homelander - 11.57 GB | 7 GB](https://www.1tamilmv.space/index.php?/forums/topic/164929-60fpsstrangerthingss04piie08-09chapterninethepiggyback1080pnfwebripmultiddp51atmosh265homelander-1157-gb-7-gb/&do=findComment&comment=329709)
+- [Kung Fu Hustle &lpar;2004&rpar;[720p - BDRip - [Tamil +  Telugu+  Hindi + Eng]](https://www.1tamilmv.space/index.php?/forums/topic/164950-kung-fu-hustle-2004720p-bdrip-tamil-telugu-hindi-eng/&do=findComment&comment=329708)
 - [Indian &lpar;1996&rpar; [ Tamil - 1080p - AVC - UNTOUCHED - AAC2.0 - x264 - 3.7GB]](https://www.1tamilmv.space/index.php?/forums/topic/164279-indian-1996-tamil-1080p-avc-untouched-aac20-x264-37gb/&do=findComment&comment=329707)
 - [Shaolin Soccer &lpar;2001&rpar;[720p - BDRip - [Tamil + Telugu + Hindi+ Eng + Chi]](https://www.1tamilmv.space/index.php?/forums/topic/164949-shaolin-soccer-2001720p-bdrip-tamil-telugu-hindi-eng-chi/&do=findComment&comment=329706)
-- [Nuvve Kavali &lpar;2000&rpar; - 16Bit FLAC - ACDRip - [Mayuri Audio]](https://www.1tamilmv.space/index.php?/forums/topic/164658-nuvve-kavali-2000-16bit-flac-acdrip-mayuri-audio/&do=findComment&comment=329705)
-- [Top Tamil Movies 2022 From Moviesda Part 1](https://www.1tamilmv.space/index.php?/forums/topic/164948-top-tamil-movies-2022-from-moviesda-part-1/&do=findComment&comment=329704)
-- [༒ Shazam &lpar;2019&rpar; BluRay [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/164947-%E0%BC%92-shazam-2019-bluray-telugu-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=329703)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
