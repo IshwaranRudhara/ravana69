@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kaakha Kaakha &lpar;2003&rpar;[Tamil - 1080p - AMZN WEB DL - x264 - DDP5.1 - 10.76GB]](https://www.1tamilmv.space/index.php?/forums/topic/138287-kaakha-kaakha-2003tamil-1080p-amzn-web-dl-x264-ddp51-1076gb/&do=findComment&comment=329682)
-- [Ullasam &lpar;2022&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/164827-ullasam-2022-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=329681)
-- [Bedeviled &lpar;2016&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164907-bedeviled-2016-bluray-original-audio-1080p-720p-x264-tamil-eng-2gb-1gb-x264-tamil-400mb-esub/&do=findComment&comment=329680)
-- [Bedeviled &lpar;2016&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164907-bedeviled-2016-bluray-original-audio-1080p-720p-x264-tamil-eng-2gb-1gb-x264-tamil-400mb-esub/&do=findComment&comment=329679)
-- [Sontham &lpar;2002&rpar; Telugu TRUE WEBDL 1080p H.264 AAC 4.2GB / Krishnarjuna Yudham &lpar;2018&rpar; Telugu True HQ 1080p HD H.264 AAC Esub 4.2GB [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/164933-sontham-2002-telugu-true-webdl-1080p-h264-aac-42gb-krishnarjuna-yudham-2018-telugu-true-hq-1080p-hd-h264-aac-esub-42gb-gdrive/&do=findComment&comment=329678)
+- [Wrong Turn - Foundation &lpar;2021&rpar; AMZN - WEB-DL - 1080p [Tamil + Hindi] DDP2.0 &lpar;224Kbps&rpar; + [English - DDP5.1 &lpar;640Kbps&rpar;] - H.264 - 8GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164942-wrong-turn-foundation-2021-amzn-web-dl-1080p-tamil-hindi-ddp20-224kbps-english-ddp51-640kbps-h264-8gb-esub/&do=findComment&comment=329692)
+- [Peranmai &lpar;2009&rpar; SunNXT - WEB-DL [1080p - Tamil - DD+ 5.1 &lpar;192Kbps&rpar;] - H.264 - 6GB](https://www.1tamilmv.space/index.php?/forums/topic/164941-peranmai-2009-sunnxt-web-dl-1080p-tamil-dd-51-192kbps-h264-6gb/&do=findComment&comment=329691)
+- [M.Kumaran Son Of Mahalakshmi &lpar;2004&rpar; SunNXT - WEB-DL [1080p - Tamil - DD+ 5.1 &lpar;192Kbps&rpar;] - H.264 - 7GB](https://www.1tamilmv.space/index.php?/forums/topic/164940-mkumaran-son-of-mahalakshmi-2004-sunnxt-web-dl-1080p-tamil-dd-51-192kbps-h264-7gb/&do=findComment&comment=329690)
+- [Romeo Juliet &lpar;2015&rpar; SunNXT - WEB-DL [1080p - Tamil - DD+ 5.1 &lpar;192Kbps&rpar;] - H.264 - 5.5GB](https://www.1tamilmv.space/index.php?/forums/topic/164939-romeo-juliet-2015-sunnxt-web-dl-1080p-tamil-dd-51-192kbps-h264-55gb/&do=findComment&comment=329689)
+- [Thillalangadi &lpar;2010&rpar; SunNXT - WEB-DL [1080p - Tamil - DDP5.1 &lpar;192Kbps&rpar;] - H.264 - 5.1GB](https://www.1tamilmv.space/index.php?/forums/topic/164938-thillalangadi-2010-sunnxt-web-dl-1080p-tamil-ddp51-192kbps-h264-51gb/&do=findComment&comment=329688)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
