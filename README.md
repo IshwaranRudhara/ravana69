@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Top Tamil Movies 2022 From Moviesda Part 1](https://www.1tamilmv.space/index.php?/forums/topic/164948-top-tamil-movies-2022-from-moviesda-part-1/&do=findComment&comment=329704)
+- [༒ Shazam &lpar;2019&rpar; BluRay [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/164947-%E0%BC%92-shazam-2019-bluray-telugu-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=329703)
 - [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.space/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=329702)
 - [Neeli Neeli - Alludu Seenu - FHD - Bluray - 1080P - 305MB](https://www.1tamilmv.space/index.php?/forums/topic/130564-neeli-neeli-alludu-seenu-fhd-bluray-1080p-305mb/&do=findComment&comment=329701)
 - [Neeli Neeli - Alludu Seenu - FHD - Bluray - 1080P - 305MB](https://www.1tamilmv.space/index.php?/forums/topic/103704-neeli-neeli-alludu-seenu-fhd-bluray-1080p-305mb/&do=findComment&comment=329700)
-- [Alludu Seenu - Telugu - Full Video Songs - 2014 - Itunes - FHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/149713-alludu-seenu-telugu-full-video-songs-2014-itunes-fhd-1080p/&do=findComment&comment=329699)
-- [Alludu Seenu - Telugu - Full Video Songs - 2014 - Itunes - FHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/164946-alludu-seenu-telugu-full-video-songs-2014-itunes-fhd-1080p/&do=findComment&comment=329698)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
