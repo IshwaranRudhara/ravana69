@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Virata Parvam &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 8.1GB - 3.8GB &amp; 1.5GB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164787-virata-parvam-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-81gb-38gb-15gb-x264-800mb-500mb-250mb-esub/&do=findComment&comment=329865)
+- [1945 &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.8GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164903-1945-2022-tamil-original-version%C2%A0true-web-dl-1080p-720p-avc-dd51-384kbps-48gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=329864)
 - [YAMAN &lpar;2017&rpar; - Complete Music Video Album - Lyca WebD - [4K] - VP9 - 2106p - WEBM - 1.5GB](https://www.1tamilmv.space/index.php?/forums/topic/165045-yaman-2017-complete-music-video-album-lyca-webd-4k-vp9-2106p-webm-15gb/&do=findComment&comment=329863)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.space/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=329862)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.space/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=329861)
-- [Spider Man: Far From Home &lpar;2019&rpar; Malayalam SDTV - [720p - HEVC - AAC - 650MB | x265 - 400MB]](https://www.1tamilmv.space/index.php?/forums/topic/165044-spider-man-far-from-home-2019-malayalam-sdtv-720p-hevc-aac-650mb-x265-400mb/&do=findComment&comment=329860)
-- [Kotigobba 3 &lpar;2021&rpar; - Kannada Video Songs - 1080p - WEB-DL - DDP5.1 &amp; DTS](https://www.1tamilmv.space/index.php?/forums/topic/165043-kotigobba-3-2021-kannada-video-songs-1080p-web-dl-ddp51-dts/&do=findComment&comment=329859)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
