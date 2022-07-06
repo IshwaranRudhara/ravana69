@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dabangg 3 &lpar;2019&rpar; Telugu AMZN TRUE WEB-DL - [1080p-10GB-8GB-5GB-3GB / 720p-1.4GB / 480p-500MB] - AVC - [DD+5.1 - 640kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/165101-dabangg-3-2019-telugu-amzn-true-web-dl-1080p-10gb-8gb-5gb-3gb-720p-14gb-480p-500mb-avc-dd51-640kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=329971)
+- [Obi-Wan Kenobi &lpar;2022&rpar; Season 1 &lpar;EP 01-06&rpar; TRUE Web - DL - [4K HDR &amp; 1080p - HEVC - &lpar;DD5.1 + 192Kbps&rpar; &lpar;Tamil + Telugu+ Hindi + Malayalam + English&rpar;] - MSub - Gdrive](https://www.1tamilmv.space/index.php?/forums/topic/163499-obi-wan-kenobi-2022-season-1-ep-01-06-true-web-dl-4k-hdr-1080p-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-english-msub-gdrive/&do=findComment&comment=329970)
+- [Ms. Marvel &lpar;2022&rpar; Season 1 EP &lpar;01-05&rpar; TRUE Web - DL - [4K HDR - 1080p &amp; 720p - HEVC - &lpar;DD5.1 + 192Kbps&rpar; &lpar;Tamil + Telugu+ Hindi + Malayalam + English&rpar;] - MSub - Gdrive](https://www.1tamilmv.space/index.php?/forums/topic/163690-ms-marvel-2022-season-1-ep-01-05-true-web-dl-4k-hdr-1080p-720p-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-english-msub-gdrive/&do=findComment&comment=329969)
 - [Raavan &lpar;2010&rpar; - Hindi - T-Series - SFCD 1-1575 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A.R. Rahman Musical](https://www.1tamilmv.space/index.php?/forums/topic/165100-raavan-2010-hindi-t-series-sfcd-1-1575-true-mp3-441khz-16bit-320kbps-ar-rahman-musical/&do=findComment&comment=329968)
 - [Cooliekkaran &lpar;1987&rpar; - Tamil - Lahari - LRCD 9626 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - T. Rajendar Musical](https://www.1tamilmv.space/index.php?/forums/topic/165099-cooliekkaran-1987-tamil-lahari-lrcd-9626-true-mp3-441khz-16bit-320kbps-t-rajendar-musical/&do=findComment&comment=329967)
-- [Jurassic World 3.Dominion &lpar;2022&rpar;.Eng.1080o.Web-dl.x264.DD5.1 &lpar;Original Audio&rpar;.HC-Korean Sub + ESub - 2.3GB - GDRIVE](https://www.1tamilmv.space/index.php?/forums/topic/165098-jurassic-world-3dominion-2022eng1080oweb-dlx264dd51-original-audiohc-korean-sub-esub-23gb-gdrive/&do=findComment&comment=329966)
-- [Paka &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165097-paka-2022-malayalam-true-web-dl-1080p-720p-avc-18gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=329965)
-- [Thor Trilogy &lpar;2011 - 2017&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.4GB - 3.8GB &amp; 450MB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165059-thor-trilogy-2011-2017-bluray-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-64gb-38gb-450mb-esub/&do=findComment&comment=329964)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
