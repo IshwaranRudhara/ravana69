@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vikram &lpar;2022&rpar; Tamil HDRip - 1080p - x264 - AAC - 250MB - 400MB - 700MB - 1.5GB - 1.8GB - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165114-vikram-2022-tamil-hdrip-1080p-x264-aac-250mb-400mb-700mb-15gb-18gb-hc-esub/&do=findComment&comment=329988)
-- [Premam &lpar;2015&rpar; - Malayalam - Muzik247 - MACD-0023 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Rajesh Murugesan Musical](https://www.1tamilmv.space/index.php?/forums/topic/165113-premam-2015-malayalam-muzik247-macd-0023-true-mp3-441khz-16bit-320kbps-rajesh-murugesan-musical/&do=findComment&comment=329987)
-- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329986)
-- [Thor Trilogy &lpar;2011 - 2017&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/165112-thor-trilogy-2011-2017/&do=findComment&comment=329985)
-- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329984)
+- [The Villain &lpar;2018&rpar; - Kannada - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Arjun Janya Musical](https://www.1tamilmv.space/index.php?/forums/topic/165116-the-villain-2018-kannada-true-mp3-441khz-16bit-320kbps-arjun-janya-musical/&do=findComment&comment=329996)
+- [Stranger Things &lpar;2022&rpar; S04 VOL.2 EP&lpar;08-09&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 4.5GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164819-stranger-things-2022-s04-vol2-ep08-09-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-45gb-2gb-800mb-esub/&do=findComment&comment=329995)
+- [Thor Trilogy &lpar;2011 - 2017&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.4GB - 3.8GB &amp; 450MB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165059-thor-trilogy-2011-2017-bluray-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-64gb-38gb-450mb-esub/&do=findComment&comment=329994)
+- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329993)
+- [Veetla Vishesham &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 2.5GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165048-veetla-vishesham-2022-tamil-hd-dvd-1080p-720p-avc-hevc-25gb-12gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329992)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
