@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Veetla Vishesham &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 2.5GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165048-veetla-vishesham-2022-tamil-hd-dvd-1080p-720p-avc-hevc-25gb-12gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329900)
+- [[Gdrive] - Vikram &lpar;2022&rpar; Tamil HDRip - 1080p - 720p - 480p - HEVC - x265 - AAC - 200MB - 400MB - 900MB -1.5GB -3GB - HC-ESub [Gdrive]](https://www.1tamilmv.space/index.php?/forums/topic/165061-gdrive-vikram-2022-tamil-hdrip-1080p-720p-480p-hevc-x265-aac-200mb-400mb-900mb-15gb-3gb-hc-esub-gdrive/&do=findComment&comment=329899)
+- [Thor Trilogy &lpar;2011 - 2017&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.4GB - 3.8GB &amp; 450MB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165059-thor-trilogy-2011-2017-bluray-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-64gb-38gb-450mb-esub/&do=findComment&comment=329898)
 - [༒    Vikram &lpar;2022&rpar; Tamil HD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/165060-%E0%BC%92-vikram-2022-tamil-hd-1080p-720p-avc-hevc-3gb-16gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub-google-drive/&do=findComment&comment=329897)
 - [Thor Trilogy &lpar;2011 - 2017&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.4GB - 3.8GB &amp; 450MB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165059-thor-trilogy-2011-2017-bluray-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-64gb-38gb-450mb-esub/&do=findComment&comment=329896)
-- [Three &lpar;2012&rpar; Telugu Aha TRUE WEBDL - [1080p-2.6GB / 720p-1.4GB / 480p-850MB / 360p-500MB] - UNTOUCHED - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/165031-three-2012-telugu-aha-true-webdl-1080p-26gb-720p-14gb-480p-850mb-360p-500mb-untouched-avc-aac-gdrivelinks/&do=findComment&comment=329895)
-- [Va: Quarter Cutting &lpar;2010&rpar; AMZN - WEB-DL [1080p - Tamil - DDP5.1 &lpar;640Kbps&rpar;] - H.264 - 8.5GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165058-va-quarter-cutting-2010-amzn-web-dl-1080p-tamil-ddp51-640kbps-h264-85gb-esub/&do=findComment&comment=329894)
-- [Vikram &lpar;2022&rpar;.Tamil.480p.Web-dl.x264.DD5.1 640Kbps.HC-Esub - GDRIVE](https://www.1tamilmv.space/index.php?/forums/topic/165057-vikram-2022tamil480pweb-dlx264dd51-640kbpshc-esub-gdrive/&do=findComment&comment=329893)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
