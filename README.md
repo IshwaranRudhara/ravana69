@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikram &lpar;2022&rpar; Tamil HDRip - 1080p - x264 - AAC - 250MB - 400MB - 700MB - 1.5GB - 1.8GB - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165114-vikram-2022-tamil-hdrip-1080p-x264-aac-250mb-400mb-700mb-15gb-18gb-hc-esub/&do=findComment&comment=329988)
+- [Premam &lpar;2015&rpar; - Malayalam - Muzik247 - MACD-0023 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Rajesh Murugesan Musical](https://www.1tamilmv.space/index.php?/forums/topic/165113-premam-2015-malayalam-muzik247-macd-0023-true-mp3-441khz-16bit-320kbps-rajesh-murugesan-musical/&do=findComment&comment=329987)
+- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329986)
+- [Thor Trilogy &lpar;2011 - 2017&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/165112-thor-trilogy-2011-2017/&do=findComment&comment=329985)
 - [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=329984)
-- [The Huntsman Winter&#39;s War &lpar;2016&rpar; Extended Cut 1080p BluRay x264 {AAC2.0 Tamil-DTS 5.1Hindi-English DTS 5.1} ESub 6GB [G-Drive]](https://www.1tamilmv.space/index.php?/forums/topic/165111-the-huntsman-winters-war-2016-extended-cut-1080p-bluray-x264-aac20-tamil-dts-51hindi-english-dts-51-esub-6gb-g-drive/&do=findComment&comment=329983)
-- [Rowdy Fellow &lpar;2014&rpar; Telugu AMZN TRUE WEB-DL - [1080p-9GB-6.5GB-3GB / 720p-1.4GB / 480p-450MB] - AVC - [DD+2.0 - 224kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/165110-rowdy-fellow-2014-telugu-amzn-true-web-dl-1080p-9gb-65gb-3gb-720p-14gb-480p-450mb-avc-dd20-224kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=329982)
-- [Paka &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Malayalam + Telugu + Hindi  + Kannada&rpar; - 3.8GB - 2.4GB - 1.4GB &amp; 650MB] - [x264 / XviD - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165095-paka-2022-true-web-dl-1080p-720p-hevc-avc-tamil-malayalam-telugu-hindi-kannada-38gb-24gb-14gb-650mb-x264-xvid-700mb-400mb-250mb-esub/&do=findComment&comment=329981)
-- [Rajugadu &lpar;2018&rpar; Telugu JC TRUE WEB-DL - [1080p-7GB-4GB / 720p-1.2GB / 480p-800MB / 360p-600MB / 240p-400MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.space/index.php?/forums/topic/165109-rajugadu-2018-telugu-jc-true-web-dl-1080p-7gb-4gb-720p-12gb-480p-800mb-360p-600mb-240p-400mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=329980)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
