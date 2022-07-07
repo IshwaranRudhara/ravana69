@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165129-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330026)
+- [Doctor Strange in the Multiverse of Madness &lpar;2022&rpar; 1080p BluRay REMUX AVC [Org DSNP DDP5.1 &lpar;192Kbps&rpar; Hindi+Tamil+Telugu+Kannada+Malayalam+English DTS Esub 36GB [G-Drive]](https://www.1tamilmv.space/index.php?/forums/topic/165136-doctor-strange-in-the-multiverse-of-madness-2022-1080p-bluray-remux-avc-org-dsnp-ddp51-192kbps-hinditamiltelugukannadamalayalamenglish-dts-esub-36gb-g-drive/&do=findComment&comment=330025)
 - [Thor: Love and Thunder &lpar;2022&rpar; English Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/165135-thor-love-and-thunder-2022-english-full-movie-watch-now-hq-for-free/&do=findComment&comment=330024)
 - [Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165129-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330023)
 - [Sex Education S01 to S03 720p Telegram File Download](https://www.1tamilmv.space/index.php?/forums/topic/165134-sex-education-s01-to-s03-720p-telegram-file-download/&do=findComment&comment=330022)
-- [PLUS 2 &lpar;2002&rpar; TAMIL MOVIE DVD RIP VIDEO SONGS WITH 5.1 DTS. &lpar;1ST ON NET IN 5.1&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/165133-plus-2-2002-tamil-movie-dvd-rip-video-songs-with-51-dts-1st-on-net-in-51/&do=findComment&comment=330021)
-- [Thor: Love and Thunder &lpar;2022&rpar; English HDCAM-Rip - 720p - x264 - AAC - 950MB](https://www.1tamilmv.space/index.php?/forums/topic/165132-thor-love-and-thunder-2022-english-hdcam-rip-720p-x264-aac-950mb/&do=findComment&comment=330020)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
