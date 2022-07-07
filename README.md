@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165129-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330015)
+- [Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165129-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330013)
+- [RRR &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 13.4GB - 5GB - 2.5GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/162601-rrr-2022-telugu-original-version-true-web-dl-4k-1080p-720p-hevc-avc-134gb-5gb-25gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330012)
 - [༒    Ms. Marvel &lpar;2022&rpar; S01 EP05 TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Eng] - 1GB - 500MB &amp; 200MB] - MSub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/165128-%E0%BC%92-ms-marvel-2022-s01-ep05-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-1gb-500mb-200mb-msub-google-drive/&do=findComment&comment=330011)
 - [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=330010)
-- [Thor: Love and Thunder [2022] English HQ PreDVD 1080p | 720p | 480p Gdrive Links](https://www.1tamilmv.space/index.php?/forums/topic/165127-thor-love-and-thunder-2022-english-hq-predvd-1080p-720p-480p-gdrive-links/&do=findComment&comment=330009)
-- [True Caller Premium Mod Apk download](https://www.1tamilmv.space/index.php?/forums/topic/165126-true-caller-premium-mod-apk-download/&do=findComment&comment=330008)
-- [Photoshop Express v8.2.969 [Premium] mod apk download](https://www.1tamilmv.space/index.php?/forums/topic/165125-photoshop-express-v82969-premium-mod-apk-download/&do=findComment&comment=330007)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
