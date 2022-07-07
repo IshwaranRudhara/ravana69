@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Thor: Love and Thunder &lpar;2022&rpar; Telugu HDCAM - [1080p &amp; 720p - x264 - &lpar;Telugu + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165130-thor-love-and-thunder-2022-telugu-hdcam-1080p-720p-x264-telugu-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330047)
-- [Thor: Love and Thunder &lpar;2022&rpar; Telugu HDCAM - [1080p &amp; 720p - x264 - &lpar;Telugu + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165130-thor-love-and-thunder-2022-telugu-hdcam-1080p-720p-x264-telugu-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330046)
+- [Tomorrow &lpar;July 8&rpar; OTT Release Movies &amp; Theatrical Release Movies List | Television Premiere Movies](https://www.1tamilmv.space/index.php?/forums/topic/165149-tomorrow-july-8-ott-release-movies-theatrical-release-movies-list-television-premiere-movies/&do=findComment&comment=330052)
+- [GARGI - Official Trailer &lpar;Tamil + Telugu + Kannada&rpar; | Sai Pallavi | Govind Vasantha | Gautham Ramachandran | Rakshit Shetty](https://www.1tamilmv.space/index.php?/forums/topic/165148-gargi-official-trailer-tamil-telugu-kannada-sai-pallavi-govind-vasantha-gautham-ramachandran-rakshit-shetty/&do=findComment&comment=330051)
+- [Paka &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Malayalam + Telugu + Hindi + Kannada&rpar; - 2.2GB - 1.3GB &amp; 800MB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165095-paka-2022-true-web-dl-1080p-720p-avc-tamil-malayalam-telugu-hindi-kannada-22gb-13gb-800mb-x264-800mb-500mb-250mb-esub/&do=findComment&comment=330050)
+- [60 Tamil Movies - 1080p - Bluray / AMZN / SS / JC / HS WEBDL - HEVC - DD5.1 / AAC5.1 / AAC - Esub - 100GB [GDrive]](https://www.1tamilmv.space/index.php?/forums/topic/165147-60-tamil-movies-1080p-bluray-amzn-ss-jc-hs-webdl-hevc-dd51-aac51-aac-esub-100gb-gdrive/&do=findComment&comment=330049)
 - [Thor Love and Thunder &lpar;2022&rpar; HDCAM-Rip - Tamil HQ Clean - 1080p - x264 - 400MB - 700MB - 1.5GB - 1.8GB](https://www.1tamilmv.space/index.php?/forums/topic/165146-thor-love-and-thunder-2022-hdcam-rip-tamil-hq-clean-1080p-x264-400mb-700mb-15gb-18gb/&do=findComment&comment=330045)
-- [Vikram &lpar;2022&rpar; Tamil HDRip - 1080p - x264 - AAC - 250MB - 400MB - 700MB - 1.5GB - 1.8GB - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165114-vikram-2022-tamil-hdrip-1080p-x264-aac-250mb-400mb-700mb-15gb-18gb-hc-esub/&do=findComment&comment=330044)
-- [Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165129-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330043)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
