@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Paka &lpar;2022&rpar; [Tamil + Telugu + Malayalam] Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/165121-paka-2022-tamil-telugu-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=330003)
-- [Madurai Manikkuravar &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/165120-madurai-manikkuravar-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=330002)
-- [Jurassic World Dominion &lpar;2022&rpar; English Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/165119-jurassic-world-dominion-2022-english-full-movie-watch-now-hq-for-free/&do=findComment&comment=330001)
-- [The Terminal List &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.9GB - 3GB &amp; 1.2GB &amp; 950MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/164820-the-terminal-list-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-69gb-3gb-12gb-950mb-esub/&do=findComment&comment=330000)
-- [Nee Jathaga Nenundali &lpar;2014&rpar; Telugu True HDRip [1080p &amp; 720p - 2.5GB - 1.4GB] H.264 DD5.1 Esub [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/164926-nee-jathaga-nenundali-2014-telugu-true-hdrip-1080p-720p-25gb-14gb-h264-dd51-esub-gdrive/&do=findComment&comment=329999)
+- [Thor: Love and Thunder [2022] English HQ PreDVD 1080p | 720p | 480p Gdrive Links](https://www.1tamilmv.space/index.php?/forums/topic/165127-thor-love-and-thunder-2022-english-hq-predvd-1080p-720p-480p-gdrive-links/&do=findComment&comment=330009)
+- [True Caller Premium Mod Apk download](https://www.1tamilmv.space/index.php?/forums/topic/165126-true-caller-premium-mod-apk-download/&do=findComment&comment=330008)
+- [Photoshop Express v8.2.969 [Premium] mod apk download](https://www.1tamilmv.space/index.php?/forums/topic/165125-photoshop-express-v82969-premium-mod-apk-download/&do=findComment&comment=330007)
+- [Power Direct Premium Mod apk download](https://www.1tamilmv.space/index.php?/forums/topic/165124-power-direct-premium-mod-apk-download/&do=findComment&comment=330006)
+- [Peaky Blinders 720p Bluray Telegram File S01-S06 Full Episode Download Free / Direct Download Single Part](https://www.1tamilmv.space/index.php?/forums/topic/165123-peaky-blinders-720p-bluray-telegram-file-s01-s06-full-episode-download-free-direct-download-single-part/&do=findComment&comment=330005)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
