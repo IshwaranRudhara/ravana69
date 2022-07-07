@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vikram &lpar;Original Background Score&rpar; &lpar;2022&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Anirudh Ravichander Musical](https://www.1tamilmv.space/index.php?/forums/topic/165159-vikram-original-background-score-2022-tamil-true-mp3-441khz-16bit-320kbps-anirudh-ravichander-musical/&do=findComment&comment=330067)
-- [Paka &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Malayalam + Telugu + Hindi + Kannada&rpar; - 2.2GB - 1.3GB &amp; 800MB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165095-paka-2022-true-web-dl-1080p-720p-avc-tamil-malayalam-telugu-hindi-kannada-22gb-13gb-800mb-x264-800mb-500mb-250mb-esub/&do=findComment&comment=330066)
-- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=330065)
-- [ULLAM KOLLAI POHUDHE 2001- KAVITHAIHAL SOLLAVA REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165158-ullam-kollai-pohudhe-2001-kavithaihal-sollava-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=330064)
-- [The Batman &lpar;2022&rpar; 1080p Blu-Ray REMUX AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English] - DDP 5.1 &lpar;640Kbps&rpar; - x264 - 28GB - Msubs](https://www.1tamilmv.space/index.php?/forums/topic/165157-the-batman-2022-1080p-blu-ray-remux-avc-untouched-tamil-telugu-hindi-english-ddp-51-640kbps-x264-28gb-msubs/&do=findComment&comment=330062)
+- [KANNAN VARUVAN 2000-KATHUKKU POOKAL SONDHAM REMASTERD VIDEO SONG 1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165165-kannan-varuvan-2000-kathukku-pookal-sondham-remasterd-video-song-1080p-with-51-dts/&do=findComment&comment=330074)
+- [@Benzmovies - Vikram &lpar;2022&rpar; 1080p SS WEB-DL x264 [Tamil &lpar;DD+ 5.1 - 448Kbps&rpar;] 4.8GB Esub Benz.mkv 4.8GB](https://www.1tamilmv.space/index.php?/forums/topic/165164-benzmovies-vikram-2022-1080p-ss-web-dl-x264-tamil-dd-51-448kbps-48gb-esub-benzmkv-48gb/&do=findComment&comment=330073)
+- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330072)
+- [Maanadu Tamil movie](https://www.1tamilmv.space/index.php?/forums/topic/165162-maanadu-tamil-movie/&do=findComment&comment=330071)
+- [༒   Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/165161-%E0%BC%92-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio-google-drive/&do=findComment&comment=330069)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
