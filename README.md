@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [KANNAN VARUVAN 2000-KATHUKKU POOKAL SONDHAM REMASTERD VIDEO SONG 1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165165-kannan-varuvan-2000-kathukku-pookal-sondham-remasterd-video-song-1080p-with-51-dts/&do=findComment&comment=330074)
-- [@Benzmovies - Vikram &lpar;2022&rpar; 1080p SS WEB-DL x264 [Tamil &lpar;DD+ 5.1 - 448Kbps&rpar;] 4.8GB Esub Benz.mkv 4.8GB](https://www.1tamilmv.space/index.php?/forums/topic/165164-benzmovies-vikram-2022-1080p-ss-web-dl-x264-tamil-dd-51-448kbps-48gb-esub-benzmkv-48gb/&do=findComment&comment=330073)
-- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330072)
-- [Maanadu Tamil movie](https://www.1tamilmv.space/index.php?/forums/topic/165162-maanadu-tamil-movie/&do=findComment&comment=330071)
-- [༒   Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/165161-%E0%BC%92-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio-google-drive/&do=findComment&comment=330069)
+- [@Benzmovies - Vikram &lpar;2022&rpar; 1080p DSNP WEB-DL x264 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Hin + Mal + Kan] Esub Benz.mkv 5.1Gb](https://www.1tamilmv.space/index.php?/forums/topic/165172-benzmovies-vikram-2022-1080p-dsnp-web-dl-x264-dd-51-192kbps-tel-tam-hin-mal-kan-esub-benzmkv-51gb/&do=findComment&comment=330088)
+- [@Benzmovies - Vikram 720p HS WEB-DL Multi AAC2.0 H.265 Benz.mkv 1.9GB](https://www.1tamilmv.space/index.php?/forums/topic/165171-benzmovies-vikram-720p-hs-web-dl-multi-aac20-h265-benzmkv-19gb/&do=findComment&comment=330087)
+- [Vikram [2022] Multi Audio [Hindi Telugu Tamil Kannada Malayalam] Gdrive Links](https://www.1tamilmv.space/index.php?/forums/topic/165170-vikram-2022-multi-audio-hindi-telugu-tamil-kannada-malayalam-gdrive-links/&do=findComment&comment=330086)
+- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - 25GB - 8.8GB - 6GB - 3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-25gb-88gb-6gb-3gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330085)
+- [Vikram &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Hindi + Kannada + Malayalam&rpar; - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 / XviD - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165168-vikram-2022-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-kannada-malayalam-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-xvid-700mb-400mb-250mb-esub/&do=findComment&comment=330084)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
