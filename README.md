@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Jurassic World Dominion &lpar;2022&rpar; English WEB-DL - [1080p &amp; 720p - x264 - AAC - 2.1GB &amp; 1GB] - HC-KorSub](https://www.1tamilmv.space/index.php?/forums/topic/165063-jurassic-world-dominion-2022-english-web-dl-1080p-720p-x264-aac-21gb-1gb-hc-korsub/&do=findComment&comment=330055)
-- [Modern Love Hyderabad S01 Streaming Now](https://www.1tamilmv.space/index.php?/forums/topic/165151-modern-love-hyderabad-s01-streaming-now/&do=findComment&comment=330054)
-- [Tomorrow Digital Premieres](https://www.1tamilmv.space/index.php?/forums/topic/165150-tomorrow-digital-premieres/&do=findComment&comment=330053)
-- [Tomorrow &lpar;July 8&rpar; OTT Release Movies &amp; Theatrical Release Movies List | Television Premiere Movies](https://www.1tamilmv.space/index.php?/forums/topic/165149-tomorrow-july-8-ott-release-movies-theatrical-release-movies-list-television-premiere-movies/&do=findComment&comment=330052)
-- [GARGI - Official Trailer &lpar;Tamil + Telugu + Kannada&rpar; | Sai Pallavi | Govind Vasantha | Gautham Ramachandran | Rakshit Shetty](https://www.1tamilmv.space/index.php?/forums/topic/165148-gargi-official-trailer-tamil-telugu-kannada-sai-pallavi-govind-vasantha-gautham-ramachandran-rakshit-shetty/&do=findComment&comment=330051)
+- [Vikram telugu](https://www.1tamilmv.space/index.php?/forums/topic/165156-vikram-telugu/&do=findComment&comment=330061)
+- [Modern Love Hyderabad &lpar;2022&rpar; Telugu S01 EP&lpar;01-06&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.6GB &amp; 500MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165155-modern-love-hyderabad-2022-telugu-s01-ep01-06-1080p-720p-x264-dd51-192kbps-29gb-16gb-500mb-esub/&do=findComment&comment=330060)
+- [KARNAA 1995 - MALARE MAUNAMA VIDEO SONG HDTV 1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165154-karnaa-1995-malare-maunama-video-song-hdtv-1080p-with-51-dts/&do=findComment&comment=330059)
+- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=330058)
+- [Vikram.2022.Original.Background.Score - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 440 MB | 235 MB | 75 MB | 37 MB - An Anirudh Ravichander Musical](https://www.1tamilmv.space/index.php?/forums/topic/165153-vikram2022originalbackgroundscore-flac-24bit16bit-mp3-320kbps128kbps-440-mb-235-mb-75-mb-37-mb-an-anirudh-ravichander-musical/&do=findComment&comment=330057)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
