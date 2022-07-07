@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [༒    Ms. Marvel &lpar;2022&rpar; S01 EP05 TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Eng] - 1GB - 500MB &amp; 200MB] - MSub - Google Drive](https://www.1tamilmv.space/index.php?/forums/topic/165128-%E0%BC%92-ms-marvel-2022-s01-ep05-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-1gb-500mb-200mb-msub-google-drive/&do=findComment&comment=330011)
+- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=330010)
 - [Thor: Love and Thunder [2022] English HQ PreDVD 1080p | 720p | 480p Gdrive Links](https://www.1tamilmv.space/index.php?/forums/topic/165127-thor-love-and-thunder-2022-english-hq-predvd-1080p-720p-480p-gdrive-links/&do=findComment&comment=330009)
 - [True Caller Premium Mod Apk download](https://www.1tamilmv.space/index.php?/forums/topic/165126-true-caller-premium-mod-apk-download/&do=findComment&comment=330008)
 - [Photoshop Express v8.2.969 [Premium] mod apk download](https://www.1tamilmv.space/index.php?/forums/topic/165125-photoshop-express-v82969-premium-mod-apk-download/&do=findComment&comment=330007)
-- [Power Direct Premium Mod apk download](https://www.1tamilmv.space/index.php?/forums/topic/165124-power-direct-premium-mod-apk-download/&do=findComment&comment=330006)
-- [Peaky Blinders 720p Bluray Telegram File S01-S06 Full Episode Download Free / Direct Download Single Part](https://www.1tamilmv.space/index.php?/forums/topic/165123-peaky-blinders-720p-bluray-telegram-file-s01-s06-full-episode-download-free-direct-download-single-part/&do=findComment&comment=330005)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
