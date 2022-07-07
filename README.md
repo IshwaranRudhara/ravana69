@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jurassic World Dominion &lpar;2022&rpar; English WEB-DL - [1080p &amp; 720p - x264 - AAC - 2.1GB &amp; 1GB] - HC-KorSub](https://www.1tamilmv.space/index.php?/forums/topic/165063-jurassic-world-dominion-2022-english-web-dl-1080p-720p-x264-aac-21gb-1gb-hc-korsub/&do=findComment&comment=330055)
+- [Modern Love Hyderabad S01 Streaming Now](https://www.1tamilmv.space/index.php?/forums/topic/165151-modern-love-hyderabad-s01-streaming-now/&do=findComment&comment=330054)
+- [Tomorrow Digital Premieres](https://www.1tamilmv.space/index.php?/forums/topic/165150-tomorrow-digital-premieres/&do=findComment&comment=330053)
 - [Tomorrow &lpar;July 8&rpar; OTT Release Movies &amp; Theatrical Release Movies List | Television Premiere Movies](https://www.1tamilmv.space/index.php?/forums/topic/165149-tomorrow-july-8-ott-release-movies-theatrical-release-movies-list-television-premiere-movies/&do=findComment&comment=330052)
 - [GARGI - Official Trailer &lpar;Tamil + Telugu + Kannada&rpar; | Sai Pallavi | Govind Vasantha | Gautham Ramachandran | Rakshit Shetty](https://www.1tamilmv.space/index.php?/forums/topic/165148-gargi-official-trailer-tamil-telugu-kannada-sai-pallavi-govind-vasantha-gautham-ramachandran-rakshit-shetty/&do=findComment&comment=330051)
-- [Paka &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Malayalam + Telugu + Hindi + Kannada&rpar; - 2.2GB - 1.3GB &amp; 800MB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165095-paka-2022-true-web-dl-1080p-720p-avc-tamil-malayalam-telugu-hindi-kannada-22gb-13gb-800mb-x264-800mb-500mb-250mb-esub/&do=findComment&comment=330050)
-- [60 Tamil Movies - 1080p - Bluray / AMZN / SS / JC / HS WEBDL - HEVC - DD5.1 / AAC5.1 / AAC - Esub - 100GB [GDrive]](https://www.1tamilmv.space/index.php?/forums/topic/165147-60-tamil-movies-1080p-bluray-amzn-ss-jc-hs-webdl-hevc-dd51-aac51-aac-esub-100gb-gdrive/&do=findComment&comment=330049)
-- [Thor Love and Thunder &lpar;2022&rpar; HDCAM-Rip - Tamil HQ Clean - 1080p - x264 - 400MB - 700MB - 1.5GB - 1.8GB](https://www.1tamilmv.space/index.php?/forums/topic/165146-thor-love-and-thunder-2022-hdcam-rip-tamil-hq-clean-1080p-x264-400mb-700mb-15gb-18gb/&do=findComment&comment=330045)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
