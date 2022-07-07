@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vikram telugu](https://www.1tamilmv.space/index.php?/forums/topic/165156-vikram-telugu/&do=findComment&comment=330061)
-- [Modern Love Hyderabad &lpar;2022&rpar; Telugu S01 EP&lpar;01-06&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.6GB &amp; 500MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165155-modern-love-hyderabad-2022-telugu-s01-ep01-06-1080p-720p-x264-dd51-192kbps-29gb-16gb-500mb-esub/&do=findComment&comment=330060)
-- [KARNAA 1995 - MALARE MAUNAMA VIDEO SONG HDTV 1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165154-karnaa-1995-malare-maunama-video-song-hdtv-1080p-with-51-dts/&do=findComment&comment=330059)
-- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=330058)
-- [Vikram.2022.Original.Background.Score - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 440 MB | 235 MB | 75 MB | 37 MB - An Anirudh Ravichander Musical](https://www.1tamilmv.space/index.php?/forums/topic/165153-vikram2022originalbackgroundscore-flac-24bit16bit-mp3-320kbps128kbps-440-mb-235-mb-75-mb-37-mb-an-anirudh-ravichander-musical/&do=findComment&comment=330057)
+- [Vikram &lpar;Original Background Score&rpar; &lpar;2022&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Anirudh Ravichander Musical](https://www.1tamilmv.space/index.php?/forums/topic/165159-vikram-original-background-score-2022-tamil-true-mp3-441khz-16bit-320kbps-anirudh-ravichander-musical/&do=findComment&comment=330067)
+- [Paka &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Malayalam + Telugu + Hindi + Kannada&rpar; - 2.2GB - 1.3GB &amp; 800MB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165095-paka-2022-true-web-dl-1080p-720p-avc-tamil-malayalam-telugu-hindi-kannada-22gb-13gb-800mb-x264-800mb-500mb-250mb-esub/&do=findComment&comment=330066)
+- [Vikram &lpar;2022&rpar; Tamil HD-DVD - [1080p &amp; 720p - AVC / HEVC - 3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.space/index.php?/forums/topic/165046-vikram-2022-tamil-hd-dvd-1080p-720p-avc-hevc-3gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=330065)
+- [ULLAM KOLLAI POHUDHE 2001- KAVITHAIHAL SOLLAVA REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165158-ullam-kollai-pohudhe-2001-kavithaihal-sollava-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=330064)
+- [The Batman &lpar;2022&rpar; 1080p Blu-Ray REMUX AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English] - DDP 5.1 &lpar;640Kbps&rpar; - x264 - 28GB - Msubs](https://www.1tamilmv.space/index.php?/forums/topic/165157-the-batman-2022-1080p-blu-ray-remux-avc-untouched-tamil-telugu-hindi-english-ddp-51-640kbps-x264-28gb-msubs/&do=findComment&comment=330062)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
