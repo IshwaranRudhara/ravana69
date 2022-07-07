@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Thor: Love and Thunder &lpar;2022&rpar; Telugu HDCAM - [1080p &amp; 720p - x264 - &lpar;Telugu + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165130-thor-love-and-thunder-2022-telugu-hdcam-1080p-720p-x264-telugu-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=330035)
-- [Thor:Love.and.Thunder.2022.Original.Motion.Picture.Soundtrack - FLAC [24bit|16bit] - Micheal Giacchino Musical - 694 MB | 339 MB](https://www.1tamilmv.space/index.php?/forums/topic/165141-thorloveandthunder2022originalmotionpicturesoundtrack-flac-24bit16bit-micheal-giacchino-musical-694-mb-339-mb/&do=findComment&comment=330034)
-- [Touch Chesi Chudu &lpar;2018&rpar;  [Complete Music Video Album]  [amz-webD]  [1080p.H264/DD+5.1@640Kbps] - 1.2GB](https://www.1tamilmv.space/index.php?/forums/topic/165140-touch-chesi-chudu-2018-complete-music-video-album-amz-webd-1080ph264dd51640kbps-12gb/&do=findComment&comment=330033)
-- [Thor: Love and Thunder &lpar;2022&rpar; Hindi HDCAM - [720p - x264 - &lpar;Hindi + Eng&rpar; - 950MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165139-thor-love-and-thunder-2022-hindi-hdcam-720p-x264-hindi-eng-950mb-400mb-hq-clean-audio/&do=findComment&comment=330031)
-- [Thor: Love and Thunder [2022] Hindi HD 1080p | 720p | 480p Gdrive Links](https://www.1tamilmv.space/index.php?/forums/topic/165138-thor-love-and-thunder-2022-hindi-hd-1080p-720p-480p-gdrive-links/&do=findComment&comment=330030)
+- [&lpar;GDrive &rpar; Thor: Love and Thunder &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB] - HQ Clean Audio](https://www.1tamilmv.space/index.php?/forums/topic/165145-gdrive-thor-love-and-thunder-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-hq-clean-audio/&do=findComment&comment=330040)
+- [Watch And Download Major &lpar;2022&rpar; Telugu + Hindi + Malayalam HD Movie Online Free [Download &amp; Streaming Links]](https://www.1tamilmv.space/index.php?/forums/topic/165144-watch-and-download-major-2022-telugu-hindi-malayalam-hd-movie-online-free-download-streaming-links/&do=findComment&comment=330039)
+- [Baadshah - Telugu - VIDEOSONGS - BLURAY - FULL HD - 151MB](https://www.1tamilmv.space/index.php?/forums/topic/118332-baadshah-telugu-videosongs-bluray-full-hd-151mb/&do=findComment&comment=330038)
+- [Baadshah - Telugu - VIDEOSONGS - BLURAY - FULL HD - 151MB](https://www.1tamilmv.space/index.php?/forums/topic/165143-baadshah-telugu-videosongs-bluray-full-hd-151mb/&do=findComment&comment=330037)
+- [The Family Man Season-2 &lpar;2021&rpar; WEB-DL - Tel_Tam_Hin - 01-9 Episodes - 720p - ESubs &lpar;MX Player &amp; Playit Links &amp; Mirror Download Links&rpar;](https://www.1tamilmv.space/index.php?/forums/topic/165142-the-family-man-season-2-2021-web-dl-tel_tam_hin-01-9-episodes-720p-esubs-mx-player-playit-links-mirror-download-links/&do=findComment&comment=330036)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
