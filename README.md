@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Dangal &lpar;2016&rpar; NF - WEB-DL - 1080p [Tamil + Telugu + Hindi] DDP5.1 &lpar;640Kbps&rpar; - H.264 - 5GB - MSub](https://www.1tamilmv.space/index.php?/forums/topic/165209-dangal-2016-nf-web-dl-1080p-tamil-telugu-hindi-ddp51-640kbps-h264-5gb-msub/&do=findComment&comment=330156)
-- [90 ML &lpar;2019&rpar; NF - WEB-DL [1080p - Tamil - DDP5.1 &lpar;640Kbps&rpar;] - H.264 - 3.5GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165208-90-ml-2019-nf-web-dl-1080p-tamil-ddp51-640kbps-h264-35gb-esub/&do=findComment&comment=330155)
-- [The Accidental Spy &lpar;2001&rpar; AMZN - WEB-DL - 1080p [Tamil + Telugu + Hindi + English] DDP2.0 &lpar;224Kbps&rpar; - H.264 - 5.5GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165207-the-accidental-spy-2001-amzn-web-dl-1080p-tamil-telugu-hindi-english-ddp20-224kbps-h264-55gb-esub/&do=findComment&comment=330154)
-- [Dwayne Johnson &lpar;Rock&rpar; Movie Collection - 26 BluRay - 720p - x264 - [Telugu &lpar;20&rpar; + Tamil + Hindi + Eng] - 28GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165206-dwayne-johnson-rock-movie-collection-26-bluray-720p-x264-telugu-20-tamil-hindi-eng-28gb-esub/&do=findComment&comment=330153)
-- [Timon &amp; Pumbaa &lpar;1995&rpar; S1 - DSNP - WEB-DL - 1080p - Multi Auds [Tamil + Telugu + Hindi + English] AAC 2.0 - x264 - 7GB - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165205-timon-pumbaa-1995-s1-dsnp-web-dl-1080p-multi-auds-tamil-telugu-hindi-english-aac-20-x264-7gb-esub/&do=findComment&comment=330152)
+- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330164)
+- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330163)
+- [Jai Bajrangi &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 6.7GB - 3.2GB - 2GB &amp; 1.1GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165183-jai-bajrangi-2021-telugu-true-web-dl-1080p-720p-hevc-avc-67gb-32gb-2gb-11gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330162)
+- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330161)
+- [PAMMAL K 2002- SAKALA KALA VALLAVANE REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165212-pammal-k-2002-sakala-kala-vallavane-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=330160)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
