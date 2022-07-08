@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [@Benzmovies - Vikram &lpar;2022&rpar; 2160p HQ SDR DSNP WEB-DL HEVC - x265 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Hin + Mal + Kan] 24.9GB MSub Benz.mkv 25GB](https://www.1tamilmv.space/index.php?/forums/topic/165250-benzmovies-vikram-2022-2160p-hq-sdr-dsnp-web-dl-hevc-x265-dd-51-192kbps-tel-tam-hin-mal-kan-249gb-msub-benzmkv-25gb/&do=findComment&comment=330223)
-- [Vikram: Hitlist &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL](https://www.1tamilmv.space/index.php?/forums/topic/165249-vikram-hitlist-2022-telugu-original-version-true-web-dl/&do=findComment&comment=330222)
-- [Vikram: Hitlist &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL](https://www.1tamilmv.space/index.php?/forums/topic/165249-vikram-hitlist-2022-telugu-original-version-true-web-dl/&do=findComment&comment=330221)
-- [108 Sakthi &lpar;2003&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Various Artists Musical](https://www.1tamilmv.space/index.php?/forums/topic/165248-108-sakthi-2003-tamil-true-mp3-441khz-16bit-320kbps-various-artists-musical/&do=findComment&comment=330220)
-- [Neeye Nirandaram &lpar;2011&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Various Artists Musical](https://www.1tamilmv.space/index.php?/forums/topic/165247-neeye-nirandaram-2011-tamil-true-mp3-441khz-16bit-320kbps-various-artists-musical/&do=findComment&comment=330219)
+- [Khuda Haafiz Chapter II: Agni Pariksha &lpar;2022&rpar; Hindi HQ PreDVD - [720p - 1.6GB | x264 - 700MB - 400MB] - HQ Clean Audio { 𝙳𝚒𝚛𝚎𝚌𝚝 𝙻𝚒𝚗𝚔 }](https://www.1tamilmv.space/index.php?/forums/topic/165254-khuda-haafiz-chapter-ii-agni-pariksha-2022-hindi-hq-predvd-720p-16gb-x264-700mb-400mb-hq-clean-audio-%F0%9D%99%B3%F0%9D%9A%92%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%8C%F0%9D%9A%9D-%F0%9D%99%BB%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%94/&do=findComment&comment=330229)
+- [Ponniyin Selvan Teaser Launch Live](https://www.1tamilmv.space/index.php?/forums/topic/165253-ponniyin-selvan-teaser-launch-live/&do=findComment&comment=330228)
+- [Catch Me If You Can &lpar;2002&rpar;[720p - BDRip - [Tamil + Hindi + Eng]](https://www.1tamilmv.space/index.php?/forums/topic/165252-catch-me-if-you-can-2002720p-bdrip-tamil-hindi-eng/&do=findComment&comment=330227)
+- [@Benzmovies - Vikram &lpar;2022&rpar; 2160p SDR DSNP WEB-DL HEVC - x265 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Hin + Mal + Kan] 13GB Esub Benz.mkv 13GB](https://www.1tamilmv.space/index.php?/forums/topic/165251-benzmovies-vikram-2022-2160p-sdr-dsnp-web-dl-hevc-x265-dd-51-192kbps-tel-tam-hin-mal-kan-13gb-esub-benzmkv-13gb/&do=findComment&comment=330226)
+- [Gultoo &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 2.8GB - 2.1GB - 982MB &amp; 637MB | - x264 - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165152-gultoo-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-28gb-21gb-982mb-637mb-x264-400mb-esub/&do=findComment&comment=330225)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
