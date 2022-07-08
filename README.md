@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The.Boys.S03E08.AMZN.WEB-DL.Multi.DDP5.1.Esubs.x264 - 2160p [4K] HDR | 1080p | 720p - [7.2 GB - 2.3 GB]](https://www.1tamilmv.space/index.php?/forums/topic/165195-theboyss03e08amznweb-dlmultiddp51esubsx264-2160p-4k-hdr-1080p-720p-72-gb-23-gb/&do=findComment&comment=330199)
+- [Badrinath - MUSIC VIDEO ALBUM - Telugu - BLURAY - FULLHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/115493-badrinath-music-video-album-telugu-bluray-fullhd-1080p/&do=findComment&comment=330198)
+- [Badrinath - MUSIC VIDEO ALBUM - Telugu - BLURAY - FULLHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/148209-badrinath-music-video-album-telugu-bluray-fullhd-1080p/&do=findComment&comment=330197)
+- [Badrinath - MUSIC VIDEO ALBUM - Telugu - BLURAY - FULLHD - 1080P](https://www.1tamilmv.space/index.php?/forums/topic/165232-badrinath-music-video-album-telugu-bluray-fullhd-1080p/&do=findComment&comment=330196)
 - [The Sea Beast &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165228-the-sea-beast-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-33gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=330195)
-- [@Benzmovies - Avatar &lpar;2009&rpar; [2160p - Extended - HEVC - x265 - [Tamil + Telugu + Hindi + Eng] - 19.1GB - ESubs] Benz.mkv 19.2GB](https://www.1tamilmv.space/index.php?/forums/topic/164671-benzmovies-avatar-2009-2160p-extended-hevc-x265-tamil-telugu-hindi-eng-191gb-esubs-benzmkv-192gb/&do=findComment&comment=330194)
-- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330193)
-- [The Sea Beast &lpar;2022&rpar; &lpar;WEB-DL + DD5.1 Original Auidos&rpar; - [1080p &amp; 720p - x264 - &lpar;Telugu + Tamil + Hindi + English&rpar; - 6.3GB &amp; 1.4GB] - MSub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.space/index.php?/forums/topic/165231-the-sea-beast-2022-web-dl-dd51-original-auidos-1080p-720p-x264-telugu-tamil-hindi-english-63gb-14gb-msub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=330192)
-- [@Benzmovies - Vikram &lpar;2022&rpar; 2160p HQ SDR DSNP WEB-DL HDR10 HEVC - x265 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Hin + Mal + Kan] MSub Benz.mkv 27.9GB](https://www.1tamilmv.space/index.php?/forums/topic/165230-benzmovies-vikram-2022-2160p-hq-sdr-dsnp-web-dl-hdr10-hevc-x265-dd-51-192kbps-tel-tam-hin-mal-kan-msub-benzmkv-279gb/&do=findComment&comment=330191)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
