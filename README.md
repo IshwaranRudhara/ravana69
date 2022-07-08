@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330164)
-- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330163)
-- [Jai Bajrangi &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 6.7GB - 3.2GB - 2GB &amp; 1.1GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165183-jai-bajrangi-2021-telugu-true-web-dl-1080p-720p-hevc-avc-67gb-32gb-2gb-11gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330162)
-- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330161)
-- [PAMMAL K 2002- SAKALA KALA VALLAVANE REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.space/index.php?/forums/topic/165212-pammal-k-2002-sakala-kala-vallavane-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=330160)
+- [@Benzmovies - Vikram &lpar;2022&rpar; 720p DSNP WEB-DL HEVC - x265 &lpar;AAC 2.0&rpar; [Tel + Tam + Hin + Mal + Kan] 1.5GB MSub Benz.mkv 1.5GB](https://www.1tamilmv.space/index.php?/forums/topic/165219-benzmovies-vikram-2022-720p-dsnp-web-dl-hevc-x265-aac-20-tel-tam-hin-mal-kan-15gb-msub-benzmkv-15gb/&do=findComment&comment=330174)
+- [Vikram &lpar;2022&rpar; DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada] | 4K, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.space/index.php?/forums/topic/165218-vikram-2022-dsnp-web-dl-telugu-tamil-hindi-malayalam-kannada-4k-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=330173)
+- [Bangalore Naatkal &lpar;2016&rpar; AMZN - WEB-DL [1080p - Tamil - DDP2.0 &lpar;224Kbps&rpar;] - H.264 - 9.7GB - ESub.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165217-bangalore-naatkal-2016-amzn-web-dl-1080p-tamil-ddp20-224kbps-h264-97gb-esubmkv/&do=findComment&comment=330172)
+- [@Benzmovies - Vikram 2022 2160p SS WEB DL H264 DDP5.1 Atmos 448k-DDH Benz.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165163-benzmovies-vikram-2022-2160p-ss-web-dl-h264-ddp51-atmos-448k-ddh-benzmkv/&do=findComment&comment=330171)
+- [Wonder Woman 1984 2020 IMAX 1080p Blu-Ray REMUX AVC Multi [Tam + Tel + Hin] DD5.1 448Kbps + [English TrueHD 7.1] x264 - 26GB - MSub.mkv](https://www.1tamilmv.space/index.php?/forums/topic/165216-wonder-woman-1984-2020-imax-1080p-blu-ray-remux-avc-multi-tam-tel-hin-dd51-448kbps-english-truehd-71-x264-26gb-msubmkv/&do=findComment&comment=330170)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
