@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330235)
+- [Ponniyin Selvan -1 Teaser [Tam + Tel + Mal + Hin + Kan] | Mani Ratnam | AR Rahman | Subaskaran | Lyca Productions | Madras Talkies](https://www.1tamilmv.space/index.php?/forums/topic/165256-ponniyin-selvan-1-teaser-tam-tel-mal-hin-kan-mani-ratnam-ar-rahman-subaskaran-lyca-productions-madras-talkies/&do=findComment&comment=330234)
+- [Pattampoochi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - 11GB - 8GB - 4GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165169-pattampoochi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-11gb-8gb-4gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330233)
+- [Ponniyin Selvan Part 1 Tamil Teaser  - 4K HDR10 - DD5.1 Upmixed](https://www.1tamilmv.space/index.php?/forums/topic/165257-ponniyin-selvan-part-1-tamil-teaser-4k-hdr10-dd51-upmixed/&do=findComment&comment=330232)
 - [Ponniyin Selvan -1 Teaser [Tam + Tel + Mal + Hin + Kan] | Mani Ratnam | AR Rahman | Subaskaran | Lyca Productions | Madras Talkies](https://www.1tamilmv.space/index.php?/forums/topic/165256-ponniyin-selvan-1-teaser-tam-tel-mal-hin-kan-mani-ratnam-ar-rahman-subaskaran-lyca-productions-madras-talkies/&do=findComment&comment=330231)
-- [Ponniyin Selvan Teaser Tamil](https://www.1tamilmv.space/index.php?/forums/topic/165255-ponniyin-selvan-teaser-tamil/&do=findComment&comment=330230)
-- [Khuda Haafiz Chapter II: Agni Pariksha &lpar;2022&rpar; Hindi HQ PreDVD - [720p - 1.6GB | x264 - 700MB - 400MB] - HQ Clean Audio { 𝙳𝚒𝚛𝚎𝚌𝚝 𝙻𝚒𝚗𝚔 }](https://www.1tamilmv.space/index.php?/forums/topic/165254-khuda-haafiz-chapter-ii-agni-pariksha-2022-hindi-hq-predvd-720p-16gb-x264-700mb-400mb-hq-clean-audio-%F0%9D%99%B3%F0%9D%9A%92%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%8C%F0%9D%9A%9D-%F0%9D%99%BB%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%94/&do=findComment&comment=330229)
-- [Ponniyin Selvan Teaser Launch Live](https://www.1tamilmv.space/index.php?/forums/topic/165253-ponniyin-selvan-teaser-launch-live/&do=findComment&comment=330228)
-- [Catch Me If You Can &lpar;2002&rpar;[720p - BDRip - [Tamil + Hindi + Eng]](https://www.1tamilmv.space/index.php?/forums/topic/165252-catch-me-if-you-can-2002720p-bdrip-tamil-hindi-eng/&do=findComment&comment=330227)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
