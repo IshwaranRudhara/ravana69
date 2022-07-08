@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330116)
+- [Vikram &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165176-vikram-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330115)
+- [Aaru &lpar;2005&rpar; &lpar;1080p &amp; 720p &amp; 480p&rpar;&lpar;6.2GB &amp;1.4GB &amp; 660MB&rpar;-Tamil - HDRips - ESub](https://www.1tamilmv.space/index.php?/forums/topic/148293-aaru-2005-1080p-720p-480p62gb-14gb-660mb-tamil-hdrips-esub/&do=findComment&comment=330114)
+- [Aaru &lpar;2005&rpar; &lpar;1080p &amp; 720p &amp; 480p&rpar;&lpar;6.2GB &amp;1.4GB &amp; 660MB&rpar;-Tamil - HDRips - ESub](https://www.1tamilmv.space/index.php?/forums/topic/148293-aaru-2005-1080p-720p-480p62gb-14gb-660mb-tamil-hdrips-esub/&do=findComment&comment=330113)
 - [Vikram &lpar;2022&rpar; [Tam + Tel + Hin + Kan + Mal] Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/165188-vikram-2022-tam-tel-hin-kan-mal-full-movie-watch-now-hq-for-free/&do=findComment&comment=330112)
-- [Pattampoochi &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.space/index.php?/forums/topic/165187-pattampoochi-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=330111)
-- [In &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 950MB] - [x264 - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165186-in-2022-malayalam-true-web-dl-1080p-720p-avc-2gb-950mb-x264-400mb-esub/&do=findComment&comment=330110)
-- [Indira &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165185-indira-2022-kannada-true-web-dl-1080p-720p-avc-dd51-384kbps-3gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=330109)
-- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330106)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
