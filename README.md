@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Grandma &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 5.1GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165262-grandma-2022-tamil-true-web-dl-1080p-720p-avc-dd51-384kbps-51gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330257)
-- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330256)
-- [Madurai Manikkuravar &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165032-madurai-manikkuravar-2022-tamil-true-web-dl-1080p-720p-avc-dd51-320kbps-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=330255)
-- [Kiss &lpar;2019&rpar; Kannada- TRUE1080p |1.2gb |{G-DRIVE}](https://www.1tamilmv.space/index.php?/forums/topic/165269-kiss-2019-kannada-true1080p-12gb-g-drive/&do=findComment&comment=330254)
-- [Kiss &lpar;2019&rpar; Kannada- TRUE1080p |1.2gb |{G-DRIVE}](https://www.1tamilmv.space/index.php?/forums/topic/165268-kiss-2019-kannada-true1080p-12gb-g-drive/&do=findComment&comment=330253)
+- [Game of Thrones Full Season English 720p Telegram File / Direct Download](https://www.1tamilmv.space/index.php?/forums/topic/165276-game-of-thrones-full-season-english-720p-telegram-file-direct-download/&do=findComment&comment=330269)
+- [Jai Bajrangi &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 6.7GB - 3.2GB - 2GB &amp; 1.1GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165183-jai-bajrangi-2021-telugu-true-web-dl-1080p-720p-hevc-avc-67gb-32gb-2gb-11gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330268)
+- [Vijay Tv Serial Today Episode](https://www.1tamilmv.space/index.php?/forums/topic/165275-vijay-tv-serial-today-episode/&do=findComment&comment=330267)
+- [The Boys 720p Bluray English Season 1 &amp; Season 2 Telegram File Download Link](https://www.1tamilmv.space/index.php?/forums/topic/165274-the-boys-720p-bluray-english-season-1-season-2-telegram-file-download-link/&do=findComment&comment=330266)
+- [Ponniyin Selvan -1 Teaser [Tam + Tel + Mal + Hin + Kan] | Mani Ratnam | AR Rahman | Subaskaran | Lyca Productions | Madras Talkies](https://www.1tamilmv.space/index.php?/forums/topic/165256-ponniyin-selvan-1-teaser-tam-tel-mal-hin-kan-mani-ratnam-ar-rahman-subaskaran-lyca-productions-madras-talkies/&do=findComment&comment=330265)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
