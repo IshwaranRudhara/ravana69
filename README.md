@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [`Hurdang &lpar;2022&rpar; HDRip Hindi Full Movie```](https://www.1tamilmv.click/index.php?/forums/topic/165379-hurdang-2022-hdrip-hindi-full-movie/&do=findComment&comment=330417)
+- [She season 1and2](https://www.1tamilmv.click/index.php?/forums/topic/165378-she-season-1and2/&do=findComment&comment=330416)
+- [REKKA 2016 - KANNA KATTU PODHUM VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.click/index.php?/forums/topic/165377-rekka-2016-kanna-kattu-podhum-video-song-hd1080p-with-51-dts/&do=findComment&comment=330415)
+- [VELAI ELLA PATTADHARI 2  2017 MOVIE VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.click/index.php?/forums/topic/165376-velai-ella-pattadhari-2-%C2%A02017-movie-video-songs-hd1080p-with-51-dts/&do=findComment&comment=330414)
 - [Download Pyasi Pushpa &lpar;2022&rpar; Hindi DigiMoviePlex WEB Series 18+](https://www.1tamilmv.click/index.php?/forums/topic/165375-download-pyasi-pushpa-2022-hindi-digimovieplex-web-series-18/&do=findComment&comment=330413)
-- [Ranam &lpar;2006&rpar; [Telugu Music Video Album] &lpar;JC&rpar; [web-SD] - AVC - 576p - OrgVer - 1GB - [avatar]](https://www.1tamilmv.click/index.php?/forums/topic/165374-ranam-2006-telugu-music-video-album-jc-web-sd-avc-576p-orgver-1gb-avatar/&do=findComment&comment=330412)
-- [ACHAM YENBADHU MADAMAYADA 2016- THALLI POHADHE HD1080P VIDEO SONG WITH 5.1 DTS.](https://www.1tamilmv.click/index.php?/forums/topic/165373-acham-yenbadhu-madamayada-2016-thalli-pohadhe-hd1080p-video-song-with-51-dts/&do=findComment&comment=330411)
-- [Avatar &lpar;2009&rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165372-avatar-2009/&do=findComment&comment=330410)
-- [Alita – Battle Angel &lpar;2019&rpar; [720p + 1080p + 2160p 4K] &lpar;OPEN MATTE BluRay &rpar; HEVC Multi Audio [Org Hindi-Tamil-Telugu BD 5.1 ~ 448Kbps + English DTS-HDMA TrueHD Atmos 7.1] - [65GB - 54GB - 29GB  - 22GB -14.4GB - 10GB - 7.5GB - 6.5GB - 2.4GB ] MSubs](https://www.1tamilmv.click/index.php?/forums/topic/165371-alita-%E2%80%93-battle-angel-2019-720p-1080p-2160p-4k-open-matte-bluray-hevc-multi-audio-org-hindi-tamil-telugu-bd-51-~-448kbps-english-dts-hdma-truehd-atmos-71-65gb-54gb-29gb-22gb-144gb-10gb-75gb-65gb-24gb-msubs/&do=findComment&comment=330409)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
