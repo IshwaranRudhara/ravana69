@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Iron Man 2008 BluRay English Multi Audios 720P 1080P DSNP HEVC CvmesX](https://www.1tamilmv.space/index.php?/forums/topic/165354-iron-man-2008-bluray-english-multi-audios-720p-1080p-dsnp-hevc-cvmesx/&do=findComment&comment=330381)
-- [The Jungle Book &lpar;2016&rpar; /  The Junge Book 2 &lpar;2003&rpar; 1080p HS DSNP WEB-DL Multi-Audio [Tamil + Telugu + Hindi + English] - DDP 5.1 ESub 3.7GB [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/165353-the-jungle-book-2016-the-junge-book-2-2003-1080p-hs-dsnp-web-dl-multi-audio-tamil-telugu-hindi-english-ddp-51-esub-37gb-gdrive/&do=findComment&comment=330380)
-- [John WIck - Chapter Triology &lpar;2014 - 2019&rpar; BluRay - 1080p [Tamil +Telugu + Hindi] DD2.0 &lpar;224Kbps&rpar; + [English DD5.1 &lpar;640Kbps&rpar;] - H.264 - 15GB - ESub [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/165352-john-wick-chapter-triology-2014-2019-bluray-1080p-tamil-telugu-hindi-dd20-224kbps-english-dd51-640kbps-h264-15gb-esub-gdrive/&do=findComment&comment=330379)
-- [Shark Bait &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.space/index.php?/forums/topic/165258-shark-bait-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=330378)
-- [Chellamae &lpar;2004&rpar; SunNXT - WEB-DL [1080p - Tamil - DDP5.1 &lpar;192Kbps&rpar;] - H.264 - 5GB](https://www.1tamilmv.space/index.php?/forums/topic/165351-chellamae-2004-sunnxt-web-dl-1080p-tamil-ddp51-192kbps-h264-5gb/&do=findComment&comment=330377)
+- [Balupu - Telugu - Videosongs - BLURAY  - FULL HD](https://www.1tamilmv.space/index.php?/forums/topic/118783-balupu-telugu-videosongs-bluray-full-hd/&do=findComment&comment=330388)
+- [Balupu - Telugu - Videosongs - BLURAY - FULLHD](https://www.1tamilmv.space/index.php?/forums/topic/165357-balupu-telugu-videosongs-bluray-fullhd/&do=findComment&comment=330387)
+- [Spider Man Movies Collection &lpar;2002 - 2021&rpar; 1080p - HEVC - BluRay - x264 - [ Tamil - Telugu - English - Hindi ] - 24GB - ESub [GDRIVE]](https://www.1tamilmv.space/index.php?/forums/topic/165356-spider-man-movies-collection-2002-2021-1080p-hevc-bluray-x264-tamil-telugu-english-hindi-24gb-esub-gdrive/&do=findComment&comment=330386)
+- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.space/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330385)
+- [Porkanda Singam &lpar;EDM Version&rpar; [From &quot;Vikram&quot;] &lpar;2022&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Ravichandar Musical](https://www.1tamilmv.space/index.php?/forums/topic/164408-porkanda-singam-edm-version-from-vikram-2022-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-anirudh-ravichandar-musical/&do=findComment&comment=330384)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
