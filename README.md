@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pakka Commercial &lpar;2022&rpar; New Final Telugu Proper HQ PreDVD - [720p - x264 - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165413-pakka-commercial-2022-new-final-telugu-proper-hq-predvd-720p-x264-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=330493)
+- [Vikram &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Telugu + Tamil + Hindi + Malayalam + Kannada&rpar; - 13GB - 5.1GB - 2.3GB] - MSub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.click/index.php?/forums/topic/165204-vikram-2022-true-web-dl-4k-1080p-720p-hevc-avc-telugu-tamil-hindi-malayalam-kannada-13gb-51gb-23gb-msub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=330492)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=330491)
 - [♓Grand Theft Auto &lpar;GTA&rpar; I to V All PC Games Collection Multiple Repacks](https://www.1tamilmv.click/index.php?/forums/topic/165412-%E2%99%93grand-theft-auto-gta-i-to-v-all-pc-games-collection-multiple-repacks/&do=findComment&comment=330490)
 - [Krrish &lpar;2006&rpar; Blu-Ray-Telugu &lpar; Dolby Digital® 5.1 - 448Kbps&rpar;+ Hindi &lpar;DTS HDMA 5.1&rpar; - [1080p - 14.5GB - 9GB - 6GB - 4GB - 2.5GB - 1.6GB | 720p - 1.4GB - 900MB | x264 - 700MB - 400MB - 250MB] + ESub](https://www.1tamilmv.click/index.php?/forums/topic/104367-krrish-2006-blu-ray-telugu-dolby-digital%C2%AE-51-448kbps-hindi-dts-hdma-51-1080p-145gb-9gb-6gb-4gb-25gb-16gb-720p-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330489)
-- [༒ Ante Sundaraniki &lpar;2022&rpar; NETFLIX WEB-DL [Telugu + Tamil + Malayalam] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub - Google Drive](https://www.1tamilmv.click/index.php?/forums/topic/165380-%E0%BC%92-ante-sundaraniki-2022-netflix-web-dl-telugu-tamil-malayalam-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330488)
-- [​​​​​​​The Boys Season &lpar;01-03&rpar; EP&lpar;01-08&rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165395-%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8Bthe-boys-season-01-03-ep01-08/&do=findComment&comment=330487)
-- [@Benzmovies - Black &lpar;2022&rpar; 1080p HQ AMZN WEB-DL x264 [Telugu &lpar;DD+ 5.1 - 640Kbps &amp; AAC 2.0&rpar;] 5.4GB ESub Benz.mkv 5.4GB](https://www.1tamilmv.click/index.php?/forums/topic/165407-benzmovies-black-2022-1080p-hq-amzn-web-dl-x264-telugu-dd-51-640kbps-aac-20-54gb-esub-benzmkv-54gb/&do=findComment&comment=330486)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
