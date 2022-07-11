@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikram &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 28GB - 12.6GB - 8.3GB - 5GB - 3.2GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.click/index.php?/forums/topic/165166-vikram-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-28gb-126gb-83gb-5gb-32gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330437)
+- [Request to admin](https://www.1tamilmv.click/index.php?/forums/topic/165391-request-to-admin/&do=findComment&comment=330436)
 - [Obi-Wan Kenobi &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165364-obi-wan-kenobi-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330435)
 - [Obi-Wan Kenobi &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165364-obi-wan-kenobi-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330434)
 - [The Boys &lpar;2022&rpar; S03 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.7GB - 2.8GB &amp; 1.3GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165388-the-boys-2022-s03-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-67gb-28gb-13gb-esub/&do=findComment&comment=330433)
-- [Stranger Things [Tamil+English] S01-S04 720p Direct Download Link Single File](https://www.1tamilmv.click/index.php?/forums/topic/165390-stranger-things-tamilenglish-s01-s04-720p-direct-download-link-single-file/&do=findComment&comment=330432)
-- [Director Shankar Movies](https://www.1tamilmv.click/index.php?/forums/topic/165389-director-shankar-movies/&do=findComment&comment=330431)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
