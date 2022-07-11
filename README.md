@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Doraemon: Nobita and the Island of Miracles—Animal Adventure &lpar;2012&rpar; – Tamil Dubbed &lpar;Original Audio&rpar; – 1080p BDRip](https://www.1tamilmv.click/index.php?/forums/topic/165399-doraemon-nobita-and-the-island-of-miracles%E2%80%94animal-adventure-2012-%E2%80%93-tamil-dubbed-original-audio-%E2%80%93-1080p-bdrip/&do=findComment&comment=330464)
-- [Bombay &lpar;1995&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165394-bombay-1995-tamil-true-web-dl-1080p-720p-x264-23gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=330463)
-- [Bombay &lpar;1995&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165394-bombay-1995-tamil-true-web-dl-1080p-720p-x264-23gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=330462)
-- [Sambaram &lpar;2003&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-5.5GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165398-sambaram-2003-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-55gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=330461)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=330460)
+- [Black &lpar;2022&rpar; Telugu HQ AMZN WEB-DL - [1080p-5GB-2.3GB / 720p-1.3GB / 540p-400MB] - x264 / x265 - [DD+5.1 - 640Kbps &amp; AAC 2.0] - ESub - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165403-black-2022-telugu-hq-amzn-web-dl-1080p-5gb-23gb-720p-13gb-540p-400mb-x264-x265-dd51-640kbps-aac-20-esub-gdrivelinks/&do=findComment&comment=330469)
+- [Obi-Wan Kenobi &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165364-obi-wan-kenobi-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330468)
+- [Doraemon: Nobita’s Space Heroes &lpar;2015&rpar; – Tamil + Telugu + Hindi – 1080p BDRip](https://www.1tamilmv.click/index.php?/forums/topic/165402-doraemon-nobita%E2%80%99s-space-heroes-2015-%E2%80%93-tamil-telugu-hindi-%E2%80%93-1080p-bdrip/&do=findComment&comment=330467)
+- [Black &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165401-black-2022-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-52gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330466)
+- [25 Telugu Movies - 1080p WEB DL H.264 DD5.1/AAC ESub 60GB [GDrive]](https://www.1tamilmv.click/index.php?/forums/topic/165400-25-telugu-movies-1080p-web-dl-h264-dd51aac-esub-60gb-gdrive/&do=findComment&comment=330465)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
