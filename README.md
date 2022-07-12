@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Cobra &lpar;2022&rpar; Original Motion Picture Soundtrack An A. R. Rahman Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 259 MB | 139 MB | 50 MB | 20 MB](https://www.1tamilmv.click/index.php?/forums/topic/165460-cobra-2022-original-motion-picture-soundtrack-an-a-r-rahman-musical-flac-24bit16bit-mp3-320kbps128kbps-259-mb-139-mb-50-mb-20-mb/&do=findComment&comment=330571)
+- [Mankatha &lpar;2011&rpar; Tamil 1080p Blu-Ray REMUX - AVC - UNTOUCHED - Dolby TrueHD 5.1 &lpar;4323Kbps&rpar; - DTS 5.1 &lpar;1509Kbps&rpar; - DD 5.1 &lpar;640Kbps&rpar; - x264 - 40GB - Esub](https://www.1tamilmv.click/index.php?/forums/topic/165463-mankatha-2011-tamil-1080p-blu-ray-remux-avc-untouched-dolby-truehd-51-4323kbps-dts-51-1509kbps-dd-51-640kbps-x264-40gb-esub/&do=findComment&comment=330574)
+- [Jack Reacher &lpar;2012&rpar; 1080p Blu-Ray x264  {Tamil DD5.1 - DD5.1 Telugu -Hindi DD 5.1-English BD 5.1} Msubs 8GB [G-Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165462-jack-reacher-2012-1080p-blu-ray-x264-tamil-dd51-dd51-telugu-hindi-dd-51-english-bd-51-msubs-8gb-g-drive/&do=findComment&comment=330573)
+- [En Purushan Ethir Veetu Ponnu &lpar;2008&rpar; - 480p - Web-dl - DD2.0 - 1.8GB - GDRIVE](https://www.1tamilmv.click/index.php?/forums/topic/165461-en-purushan-ethir-veetu-ponnu-2008-480p-web-dl-dd20-18gb-gdrive/&do=findComment&comment=330572)
+- [Cobra &lpar;2022&rpar; Original Motion Picture Soundtrack - An A. R. Rahman Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 259 MB | 139 MB | 50 MB | 20 MB](https://www.1tamilmv.click/index.php?/forums/topic/165460-cobra-2022-original-motion-picture-soundtrack-an-a-r-rahman-musical-flac-24bit16bit-mp3-320kbps128kbps-259-mb-139-mb-50-mb-20-mb/&do=findComment&comment=330571)
 - [RED 2010, RED 2013 Tamil Dubbed Movies](https://www.1tamilmv.click/index.php?/forums/topic/165459-red-2010-red-2013-tamil-dubbed-movies/&do=findComment&comment=330570)
-- [Shamantakamani &lpar;2017&rpar; - Telugu JC TRUE WEBDL - [1080p-7GB-3.5GB-2.5GB-2GB/720p-2GB-1GB/480p-750MB/360p-600MB/240p-400MB] - AVC - [DDP 5.1&lpar;192kbps&rpar; &amp; AAC] - Esub - [GoogleDriveLinks &amp; DirectLinks]](https://www.1tamilmv.click/index.php?/forums/topic/155729-shamantakamani-2017-telugu-jc-true-webdl-1080p-7gb-35gb-25gb-2gb720p-2gb-1gb480p-750mb360p-600mb240p-400mb-avc-ddp-51192kbps-aac-esub-googledrivelinks-directlinks/&do=findComment&comment=330569)
-- [Choodiwala Part 2 Ullu Web Series 18+](https://www.1tamilmv.click/index.php?/forums/topic/165458-choodiwala-part-2-ullu-web-series-18/&do=findComment&comment=330568)
-- [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330567)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
