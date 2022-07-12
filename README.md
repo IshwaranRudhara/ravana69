@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Cobra &lpar;2022&rpar; Original Motion Picture Soundtrack An A. R. Rahman Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 259 MB | 139 MB | 50 MB | 20 MB](https://www.1tamilmv.click/index.php?/forums/topic/165460-cobra-2022-original-motion-picture-soundtrack-an-a-r-rahman-musical-flac-24bit16bit-mp3-320kbps128kbps-259-mb-139-mb-50-mb-20-mb/&do=findComment&comment=330571)
+- [RED 2010, RED 2013 Tamil Dubbed Movies](https://www.1tamilmv.click/index.php?/forums/topic/165459-red-2010-red-2013-tamil-dubbed-movies/&do=findComment&comment=330570)
+- [Shamantakamani &lpar;2017&rpar; - Telugu JC TRUE WEBDL - [1080p-7GB-3.5GB-2.5GB-2GB/720p-2GB-1GB/480p-750MB/360p-600MB/240p-400MB] - AVC - [DDP 5.1&lpar;192kbps&rpar; &amp; AAC] - Esub - [GoogleDriveLinks &amp; DirectLinks]](https://www.1tamilmv.click/index.php?/forums/topic/155729-shamantakamani-2017-telugu-jc-true-webdl-1080p-7gb-35gb-25gb-2gb720p-2gb-1gb480p-750mb360p-600mb240p-400mb-avc-ddp-51192kbps-aac-esub-googledrivelinks-directlinks/&do=findComment&comment=330569)
+- [Choodiwala Part 2 Ullu Web Series 18+](https://www.1tamilmv.click/index.php?/forums/topic/165458-choodiwala-part-2-ullu-web-series-18/&do=findComment&comment=330568)
 - [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330567)
-- [Cobra &lpar;2022&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A.R. Rahman Musical](https://www.1tamilmv.click/index.php?/forums/topic/165449-cobra-2022-tamil-true-mp3-441khz-16bit-320kbps-ar-rahman-musical/&do=findComment&comment=330566)
-- [The Boys &lpar;2022&rpar; S03 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.7GB - 2.8GB &amp; 1.3GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165388-the-boys-2022-s03-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-67gb-28gb-13gb-esub/&do=findComment&comment=330565)
-- [The Warriorr 2022 Tamil Complete Devi Sri Prasad Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 198 MB | 107 MB | 36 MB | 15 MB](https://www.1tamilmv.click/index.php?/forums/topic/165456-the-warriorr-2022-tamil-complete-devi-sri-prasad-musical-flac-24bit16bit-mp3-320kbps128kbps-198-mb-107-mb-36-mb-15-mb/&do=findComment&comment=330564)
-- [Vikram.2022.DSNP.WEB-DL.Multi.DDP5.1.192k.Esubs - 2160p [SDR] | 1080p [HDR] | 720p - 24.9 GB | 9.4 GB | 5 GB | 2.7 GB](https://www.1tamilmv.click/index.php?/forums/topic/165192-vikram2022dsnpweb-dlmultiddp51192kesubs-2160p-sdr-1080p-hdr-720p-249-gb-94-gb-5-gb-27-gb/&do=findComment&comment=330563)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
