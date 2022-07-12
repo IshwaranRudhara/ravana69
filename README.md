@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Indian &lpar;1996&rpar; API DVD9 + DVD9Rip.x265.10Bit.DTS5.1.ESub + 1080p HD AVC ×264 - 7GB + 4.3GB + 3GB - GDRIVE](https://www.1tamilmv.click/index.php?/forums/topic/114368-indian-1996-api-dvd9-dvd9ripx26510bitdts51esub-1080p-hd-avc-%C3%97264-7gb-43gb-3gb-gdrive/&do=findComment&comment=330589)
+- [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330588)
 - [SPIDER 2017 MOVIE VIDEO SONGS TAMIL HD1080P WITH REMASTERD 5.1 DTS.&lpar; FIRST ON NET &rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165469-spider-2017-movie-video-songs-tamil-hd1080p-with-remasterd-51-dts-first-on-net/&do=findComment&comment=330587)
 - [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330586)
 - [Cobra - A.R.Rahman - DD5.1 640Kbps &amp; DTSHD5.1 &lpar;Lossless FLAC Upmix&rpar; - 787MB + 284MB - Mediafire](https://www.1tamilmv.click/index.php?/forums/topic/165468-cobra-arrahman-dd51-640kbps-dtshd51-lossless-flac-upmix-787mb-284mb-mediafire/&do=findComment&comment=330585)
-- [Cobra &lpar;2022&rpar; Original Motion Picture Soundtrack - An A. R. Rahman Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 259 MB | 139 MB | 50 MB | 20 MB](https://www.1tamilmv.click/index.php?/forums/topic/165460-cobra-2022-original-motion-picture-soundtrack-an-a-r-rahman-musical-flac-24bit16bit-mp3-320kbps128kbps-259-mb-139-mb-50-mb-20-mb/&do=findComment&comment=330584)
-- [Thenmavin Kombathu &lpar;1994&rpar; - Malayalam - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Berny-Ignatius Musical](https://www.1tamilmv.click/index.php?/forums/topic/165467-thenmavin-kombathu-1994-malayalam-true-mp3-441khz-16bit-320kbps-berny-ignatius-musical/&do=findComment&comment=330583)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
