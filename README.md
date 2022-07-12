@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Adade Sundara &lpar;2022&rpar; Tamil HQ HDRip - 1080p - HEVC - &lpar;DD5.1 - 192Kbps AAC&rpar; - 1.7GB - ESub - UNTOUCHED - GRIVE](https://www.1tamilmv.click/index.php?/forums/topic/165447-adade-sundara-2022-tamil-hq-hdrip-1080p-hevc-dd51-192kbps-aac-17gb-esub-untouched-grive/&do=findComment&comment=330549)
-- [Vikram&lpar;2022&rpar;-4K,1080P-DTSMA 5.1, DTS 5.1, DD&lpar;640Kbps&rpar;-GDRIVE&lpar;Encoded from SS WebDL&rpar;-](https://www.1tamilmv.click/index.php?/forums/topic/165260-vikram2022-4k1080p-dtsma-51-dts-51-dd640kbps-gdriveencoded-from-ss-webdl/&do=findComment&comment=330548)
-- [Selvi &lpar;Babu Bangaram&rpar; &lpar;2016&rpar; Tamil 1080p AMZN WEB-DL DD+ 2.0 &lpar;224kbps&rpar; - Esubs - [6.6GB G-DRIVE] - Ninja 360](https://www.1tamilmv.click/index.php?/forums/topic/120937-selvi-babu-bangaram-2016-tamil-1080p-amzn-web-dl-dd-20-224kbps-esubs-66gb-g-drive-ninja-360/&do=findComment&comment=330547)
-- [Thaandavam &lpar;2012&rpar;[720p HDRip - [Tamil &lpar;DD5.1&rpar; + Telugu] - x264 - 1.6GB - ESubs]](https://www.1tamilmv.click/index.php?/forums/topic/165446-thaandavam-2012720p-hdrip-tamil-dd51-telugu-x264-16gb-esubs/&do=findComment&comment=330546)
-- [Parvai Ondre Pothume &lpar;2001&rpar; - Bharani - DTSHD5.1 &lpar;Lossless FLAC Upmix&rpar; &amp; DD5.1 640Kbps  - 1GB + 369MB](https://www.1tamilmv.click/index.php?/forums/topic/165445-parvai-ondre-pothume-2001-bharani-dtshd51-lossless-flac-upmix-dd51-640kbps-1gb-369mb/&do=findComment&comment=330545)
+- [Mercury &lpar;2018&rpar; [English + German + Tamil + Malayalam + Hindi + Telugu] HDRip](https://www.1tamilmv.click/index.php?/forums/topic/165450-mercury-2018-english-german-tamil-malayalam-hindi-telugu-hdrip%C2%A0/&do=findComment&comment=330557)
+- [Vikram.2022.DSNP.WEB-DL.Multi.DDP5.1.192k.Esubs - 2160p [SDR] | 1080p [HDR] | 720p - 24.9 GB | 9.4 GB | 5 GB | 2.7 GB](https://www.1tamilmv.click/index.php?/forums/topic/165192-vikram2022dsnpweb-dlmultiddp51192kesubs-2160p-sdr-1080p-hdr-720p-249-gb-94-gb-5-gb-27-gb/&do=findComment&comment=330556)
+- [Cobra &lpar;2022&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A.R. Rahman Musical](https://www.1tamilmv.click/index.php?/forums/topic/165449-cobra-2022-tamil-true-mp3-441khz-16bit-320kbps-ar-rahman-musical/&do=findComment&comment=330555)
+- [The Unholy &lpar;2021&rpar; [BDRip - Org Auds - [Tamil + Telugu] - x264 - AAC - 250MB + 450MB + 700MB + 1.3GB - ESubs](https://www.1tamilmv.click/index.php?/forums/topic/165448-the-unholy-2021-bdrip-org-auds-tamil-telugu-x264-aac-250mb-450mb-700mb-13gb-esubs%C2%A0/&do=findComment&comment=330554)
+- [Vikram movie Scenes And Video songs DD 5.1 Atmos uploaded {Tamil + Malayalam + Telugu + Hindi + kannada } ESub](https://www.1tamilmv.click/index.php?/forums/topic/165344-vikram-movie-scenes-and-video-songs-dd-51-atmos-uploaded-tamil-malayalam-telugu-hindi-kannada-esub/&do=findComment&comment=330553)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
