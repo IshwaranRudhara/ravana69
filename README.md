@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330567)
 - [Cobra &lpar;2022&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A.R. Rahman Musical](https://www.1tamilmv.click/index.php?/forums/topic/165449-cobra-2022-tamil-true-mp3-441khz-16bit-320kbps-ar-rahman-musical/&do=findComment&comment=330566)
 - [The Boys &lpar;2022&rpar; S03 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.7GB - 2.8GB &amp; 1.3GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165388-the-boys-2022-s03-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-67gb-28gb-13gb-esub/&do=findComment&comment=330565)
 - [The Warriorr 2022 Tamil Complete Devi Sri Prasad Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 198 MB | 107 MB | 36 MB | 15 MB](https://www.1tamilmv.click/index.php?/forums/topic/165456-the-warriorr-2022-tamil-complete-devi-sri-prasad-musical-flac-24bit16bit-mp3-320kbps128kbps-198-mb-107-mb-36-mb-15-mb/&do=findComment&comment=330564)
 - [Vikram.2022.DSNP.WEB-DL.Multi.DDP5.1.192k.Esubs - 2160p [SDR] | 1080p [HDR] | 720p - 24.9 GB | 9.4 GB | 5 GB | 2.7 GB](https://www.1tamilmv.click/index.php?/forums/topic/165192-vikram2022dsnpweb-dlmultiddp51192kesubs-2160p-sdr-1080p-hdr-720p-249-gb-94-gb-5-gb-27-gb/&do=findComment&comment=330563)
-- [Traitor Season &lpar;1&amp;2&rpar;  - 1080p - HS - WEBDL - Multi Audios &lpar;Tamil+Telugu+English&rpar; - AAC &lpar;2.0&rpar; - X264 - 15GB - ESubs](https://www.1tamilmv.click/index.php?/forums/topic/165455-traitor-season-12-1080p-hs-webdl-multi-audios-tamilteluguenglish-aac-20-x264-15gb-esubs/&do=findComment&comment=330562)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
