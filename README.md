@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Akdi Pakdi &lpar;Tamil&rpar; [From &#39;Liger &lpar;Tamil&rpar;&#39;] Lijo George, Dj Chetas, Sunil Kashyap, Sagar, Vaishnavi Kovvuri - FLAC 24bit [96kHz|48kHz] | MP3 [320kbps|128kbps] - 84 MB | 51 MB | 8 MB | 5 MB](https://www.1tamilmv.click/index.php?/forums/topic/165479-akdi-pakdi-tamil-from-liger-tamil-lijo-george-dj-chetas-sunil-kashyap-sagar-vaishnavi-kovvuri-flac-24bit-96khz48khz-mp3-320kbps128kbps-84-mb-51-mb-8-mb-5-mb/&do=findComment&comment=330602)
 - [Narcos &lpar;TVSeries 2015–2017&rpar; Season 01-03 720p English Direct Download Link](https://www.1tamilmv.click/index.php?/forums/topic/165478-narcos-tvseries-2015%E2%80%932017-season-01-03-720p-english-direct-download-link/&do=findComment&comment=330601)
 - [Spotify Play Music Premium Mod Apk download free](https://www.1tamilmv.click/index.php?/forums/topic/165477-spotify-play-music-premium-mod-apk-download-free/&do=findComment&comment=330600)
 - [The Expendables Trilogy &lpar;2010 - 2014&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 9.6GB - 3.7GB &amp; 450MB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165476-the-expendables-trilogy-2010-2014-bluray-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-96gb-37gb-450mb-esub/&do=findComment&comment=330599)
 - [Better Call Saul &lpar;TVSeries 2015–2022&rpar; 720p English Season 01-06 Direct Download Link](https://www.1tamilmv.click/index.php?/forums/topic/165475-better-call-saul-tvseries-2015%E2%80%932022-720p-english-season-01-06-direct-download-link/&do=findComment&comment=330598)
-- [12 Monkeys &lpar;TVSeries 2015–2018&rpar;  Season 01-04 720p Direct Download Link](https://www.1tamilmv.click/index.php?/forums/topic/165474-12-monkeys-tvseries-2015%E2%80%932018-season-01-04-720p-direct-download-link/&do=findComment&comment=330597)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
