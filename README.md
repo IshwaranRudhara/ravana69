@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [༒ Godzilla &lpar;1998&rpar; BluRay [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC | DD 5.1 | ESub - Google Drive](https://www.1tamilmv.click/index.php?/forums/topic/165471-%E0%BC%92-godzilla-1998-bluray-telugu-tamil-hindi-english-1080p-720p-480p-avc-dd-51-esub-google-drive/&do=findComment&comment=330592)
+- [Traitor Season &lpar;1&amp;2&rpar;  - 1080p - HS - WEBDL - Multi Audios &lpar;Tamil+Telugu+English&rpar; - AAC &lpar;2.0&rpar; - X264 - 15GB - ESubs](https://www.1tamilmv.click/index.php?/forums/topic/165455-traitor-season-12-1080p-hs-webdl-multi-audios-tamilteluguenglish-aac-20-x264-15gb-esubs/&do=findComment&comment=330591)
+- [July Giveaway Enter to win up to 500 AirUSD!🎰 True Officially I Get Email](https://www.1tamilmv.click/index.php?/forums/topic/165470-july-giveaway-enter-to-win-up-to-500-airusd%F0%9F%8E%B0-true-officially-i-get-email/&do=findComment&comment=330590)
 - [Indian &lpar;1996&rpar; API DVD9 + DVD9Rip.x265.10Bit.DTS5.1.ESub + 1080p HD AVC ×264 - 7GB + 4.3GB + 3GB - GDRIVE](https://www.1tamilmv.click/index.php?/forums/topic/114368-indian-1996-api-dvd9-dvd9ripx26510bitdts51esub-1080p-hd-avc-%C3%97264-7gb-43gb-3gb-gdrive/&do=findComment&comment=330589)
 - [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330588)
-- [SPIDER 2017 MOVIE VIDEO SONGS TAMIL HD1080P WITH REMASTERD 5.1 DTS.&lpar; FIRST ON NET &rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165469-spider-2017-movie-video-songs-tamil-hd1080p-with-remasterd-51-dts-first-on-net/&do=findComment&comment=330587)
-- [Ranveer vs Wild with Bear Grylls &lpar;2022&rpar; [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165457-ranveer-vs-wild-with-bear-grylls-2022-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-27gb-12gb-400mb-esub/&do=findComment&comment=330586)
-- [Cobra - A.R.Rahman - DD5.1 640Kbps &amp; DTSHD5.1 &lpar;Lossless FLAC Upmix&rpar; - 787MB + 284MB - Mediafire](https://www.1tamilmv.click/index.php?/forums/topic/165468-cobra-arrahman-dd51-640kbps-dtshd51-lossless-flac-upmix-787mb-284mb-mediafire/&do=findComment&comment=330585)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
