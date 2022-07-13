@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ms. Marvel &lpar;2022&rpar; Complete S01 [EP01 - EP06] Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165496-ms-marvel-2022-complete-s01-ep01-ep06-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330631)
+- [Ms. Marvel &lpar;2022&rpar; S01 EP06 TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Eng] - 1GB - 500MB &amp; 200MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165487-ms-marvel-2022-s01-ep06-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-1gb-500mb-200mb-esub/&do=findComment&comment=330630)
+- [Ms. Marvel &lpar;2022&rpar; Season 1 EP &lpar;01-05&rpar; TRUE Web - DL - [4K HDR - 1080p &amp; 720p - HEVC - &lpar;DD5.1 + 192Kbps&rpar; &lpar;Tamil + Telugu+ Hindi + Malayalam + English&rpar;] - MSub - Gdrive](https://www.1tamilmv.click/index.php?/forums/topic/163690-ms-marvel-2022-season-1-ep-01-05-true-web-dl-4k-hdr-1080p-720p-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-english-msub-gdrive/&do=findComment&comment=330629)
 - [Ragasiya Kanavugal - Bheema - 2008 - Tamil - BLURAY - FULLHD - 402MB](https://www.1tamilmv.click/index.php?/forums/topic/165495-ragasiya-kanavugal-bheema-2008-tamil-bluray-fullhd-402mb/&do=findComment&comment=330628)
 - [PURUSHA LATCHANAM 1993- CHEMPATTU POOVE HD1080P VIDEO SONG WITH 5.1 DTS.](https://www.1tamilmv.click/index.php?/forums/topic/165494-purusha-latchanam-1993-chempattu-poove-hd1080p-video-song-with-51-dts/&do=findComment&comment=330627)
-- [Naa Bangaaru Talli &lpar;2013&rpar; Telugu Netflix TRUE WEBDL](https://www.1tamilmv.click/index.php?/forums/topic/165493-naa-bangaaru-talli-2013-telugu-netflix-true-webdl/&do=findComment&comment=330626)
-- [Ms. Marvel &lpar;2022&rpar; S01 EP06 TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Eng] - 1GB - 500MB &amp; 200MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165487-ms-marvel-2022-s01-ep06-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-1gb-500mb-200mb-esub/&do=findComment&comment=330625)
-- [Ms. Marvel &lpar;2022&rpar; S01 EP06 TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Eng] - 1GB - 500MB &amp; 200MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165487-ms-marvel-2022-s01-ep06-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-1gb-500mb-200mb-esub/&do=findComment&comment=330624)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
