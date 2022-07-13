@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Annaamalai &lpar;1992&rpar; Tamil TRUE WEB-DL 720p UNTOUCHED AVC AAC - 4.1GB - [Direct Link] - [Major]](https://www.1tamilmv.click/index.php?/forums/topic/130064-annaamalai-1992%C2%A0tamil-true-web-dl-720p-untouched-avc-aac-41gb-direct-link-major/&do=findComment&comment=330659)
-- [Ponniyin selvan 5Books Pdf + Audios Tamil](https://www.1tamilmv.click/index.php?/forums/topic/165511-ponniyin-selvan-5books-pdf-audios-tamil/&do=findComment&comment=330658)
-- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330657)
-- [Guduputani &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.1GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165510-guduputani-2021-telugu-true-web-dl-1080p-720p-avc-aac-21gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=330656)
-- [Ms. Marvel &lpar;2022&rpar; S01 EP &lpar;01-06&rpar; DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 4K, 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub](https://www.1tamilmv.click/index.php?/forums/topic/165509-ms-marvel-2022-s01-ep-01-06-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-4k-1080p-720p-480p-avc-hevc-ddp-51-esub/&do=findComment&comment=330655)
+- [Guduputani &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.1GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165510-guduputani-2021-telugu-true-web-dl-1080p-720p-avc-aac-21gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=330664)
+- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330663)
+- [Ponniyin selvan 5Books Pdf + Audios Tamil](https://www.1tamilmv.click/index.php?/forums/topic/165511-ponniyin-selvan-5books-pdf-audios-tamil/&do=findComment&comment=330662)
+- [Ponniyin selvan 5Books Pdf + Audios Tamil](https://www.1tamilmv.click/index.php?/forums/topic/165511-ponniyin-selvan-5books-pdf-audios-tamil/&do=findComment&comment=330661)
+- [Ponniyin selvan 5Books Pdf + Audios Tamil](https://www.1tamilmv.click/index.php?/forums/topic/165511-ponniyin-selvan-5books-pdf-audios-tamil/&do=findComment&comment=330660)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
