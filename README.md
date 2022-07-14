@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vikram &lpar;2022&rpar; TRUE WEB-DL - 1080p HQ - HEVC - x265 - UNTOUCHED - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; [Tam + Tel + Hin + Kan &lpar;192Kbps&rpar; + Mal &lpar;192Kbps&rpar;] - 10.7GB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165541-vikram-2022-true-web-dl-1080p-hq-hevc-x265-untouched-dd51-atmos-768kbps-tam-tel-hin-kan-192kbps-mal-192kbps-107gb-esub/&do=findComment&comment=330748)
-- [Ponniyin selvan 5Books Pdf + Audios Tamil](https://www.1tamilmv.click/index.php?/forums/topic/165511-ponniyin-selvan-5books-pdf-audios-tamil/&do=findComment&comment=330749)
-- [Ponniyin selvan 5Books Pdf + Audios Tamil](https://www.1tamilmv.click/index.php?/forums/topic/165511-ponniyin-selvan-5books-pdf-audios-tamil/&do=findComment&comment=330747)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=330746)
-- [Resident Evil &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Hindi + Eng] - 5.6GB - 2GB &amp; 1GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165535-resident-evil-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-hindi-eng-56gb-2gb-1gb-esub/&do=findComment&comment=330745)
+- [@Benzmovies - The Warriorr &lpar;2022&rpar; Telugu Proper HQ PreDVD - 250MB - x264 - HQ Clean Audio - MP3 Benz.mkv 250MB](https://www.1tamilmv.click/index.php?/forums/topic/165553-benzmovies-the-warriorr-2022-telugu-proper-hq-predvd-250mb-x264-hq-clean-audio-mp3-benzmkv-250mb/&do=findComment&comment=330759)
+- [3 &lpar;2012&rpar; Tamil [MUSIC VIDEOS ALBUM] 1080p WEBHD AVC AAC 2.0 - UNTOUCHED - GRIVE](https://www.1tamilmv.click/index.php?/forums/topic/165552-3-2012-tamil-music-videos-album-1080p-webhd-avc-aac-20-untouched-grive/&do=findComment&comment=330758)
+- [@Benzmovies - The Warriorr &lpar;2022&rpar; Telugu Proper HQ PreDVD - 900MB - x264 - HQ Clean Audio - MP3 Benz.mkv 900MB](https://www.1tamilmv.click/index.php?/forums/topic/165551-benzmovies-the-warriorr-2022-telugu-proper-hq-predvd-900mb-x264-hq-clean-audio-mp3-benzmkv-900mb/&do=findComment&comment=330757)
+- [@Benzmovies - The Warriorr &lpar;2022&rpar; Telugu Proper HQ PreDVD - 700MB - x264 - HQ Clean Audio - MP3 Benz.mkv 700MB](https://www.1tamilmv.click/index.php?/forums/topic/165549-benzmovies-the-warriorr-2022-telugu-proper-hq-predvd-700mb-x264-hq-clean-audio-mp3-benzmkv-700mb/&do=findComment&comment=330755)
+- [The Warriorr &lpar;2022&rpar; DVDScr Telugu Full Movie](https://www.1tamilmv.click/index.php?/forums/topic/165548-the-warriorr-2022-dvdscr-telugu-full-movie/&do=findComment&comment=330754)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
