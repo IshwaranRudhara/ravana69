@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [@Benzmovies - The Warriorr &lpar;2022&rpar; Telugu Proper HQ PreDVD - 250MB - x264 - HQ Clean Audio - MP3 Benz.mkv 250MB](https://www.1tamilmv.click/index.php?/forums/topic/165553-benzmovies-the-warriorr-2022-telugu-proper-hq-predvd-250mb-x264-hq-clean-audio-mp3-benzmkv-250mb/&do=findComment&comment=330759)
-- [3 &lpar;2012&rpar; Tamil [MUSIC VIDEOS ALBUM] 1080p WEBHD AVC AAC 2.0 - UNTOUCHED - GRIVE](https://www.1tamilmv.click/index.php?/forums/topic/165552-3-2012-tamil-music-videos-album-1080p-webhd-avc-aac-20-untouched-grive/&do=findComment&comment=330758)
-- [@Benzmovies - The Warriorr &lpar;2022&rpar; Telugu Proper HQ PreDVD - 900MB - x264 - HQ Clean Audio - MP3 Benz.mkv 900MB](https://www.1tamilmv.click/index.php?/forums/topic/165551-benzmovies-the-warriorr-2022-telugu-proper-hq-predvd-900mb-x264-hq-clean-audio-mp3-benzmkv-900mb/&do=findComment&comment=330757)
-- [@Benzmovies - The Warriorr &lpar;2022&rpar; Telugu Proper HQ PreDVD - 700MB - x264 - HQ Clean Audio - MP3 Benz.mkv 700MB](https://www.1tamilmv.click/index.php?/forums/topic/165549-benzmovies-the-warriorr-2022-telugu-proper-hq-predvd-700mb-x264-hq-clean-audio-mp3-benzmkv-700mb/&do=findComment&comment=330755)
-- [The Warriorr &lpar;2022&rpar; DVDScr Telugu Full Movie](https://www.1tamilmv.click/index.php?/forums/topic/165548-the-warriorr-2022-dvdscr-telugu-full-movie/&do=findComment&comment=330754)
+- [Tomorrow &lpar;July 15&rpar; OTT Release Movies Complete List | Television Premiere Movies](https://www.1tamilmv.click/index.php?/forums/topic/165561-tomorrow-july-15-ott-release-movies-complete-list-television-premiere-movies/&do=findComment&comment=330775)
+- [Soggade Chinni Nayana &lpar;2016&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165560-soggade-chinni-nayana-2016-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-700mb-240p-450mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=330774)
+- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330773)
+- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330772)
+- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330771)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
