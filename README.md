@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Iravin Nizhal - Maayava Thooyava Official Video Song - 1080P - DD5.1 Upmixed - 80MB](https://www.1tamilmv.click/index.php?/forums/topic/165599-iravin-nizhal-maayava-thooyava-official-video-song-1080p-dd51-upmixed-80mb/&do=findComment&comment=330823)
-- [Maamanithan &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165591-maamanithan-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-dd51-384kbps-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330822)
-- [Janhit Mein Jaari &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165598-janhit-mein-jaari-2022-hindi-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=330820)
-- [Veetla Vishesham &lpar;2022&rpar; Tamil Proper TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.4GB - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.click/index.php?/forums/topic/165592-veetla-vishesham-2022-tamil-proper-true-web-dl-4k-1080p-720p-hevc-avc-dd51-192kbps-44gb-23gb-14gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330819)
-- [Kunjeldho &lpar;2021&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165594-kunjeldho-2021-malayalam-true-web-dl-1080p-720p-avc-23gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=330818)
+- [Maamanithan &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165591-maamanithan-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-dd51-384kbps-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330830)
+- [The Lord of the Rings: The Rings of Power – Main Teaser | Amazon Prime Video](https://www.1tamilmv.click/index.php?/forums/topic/165605-the-lord-of-the-rings-the-rings-of-power-%E2%80%93-main-teaser-amazon-prime-video/&do=findComment&comment=330829)
+- [The Lord of the Rings: The Rings of Power – Main Teaser &lpar;Hindi&rpar; | Amazon Prime Video](https://www.1tamilmv.click/index.php?/forums/topic/165604-the-lord-of-the-rings-the-rings-of-power-%E2%80%93-main-teaser-hindi-amazon-prime-video/&do=findComment&comment=330828)
+- [The Lord of the Rings: The Rings of Power – Main Teaser &lpar;Tamil&rpar; | Amazon Prime Video](https://www.1tamilmv.click/index.php?/forums/topic/165603-the-lord-of-the-rings-the-rings-of-power-%E2%80%93-main-teaser-tamil-amazon-prime-video/&do=findComment&comment=330827)
+- [The Lord of the Rings: The Rings of Power – Main Teaser &lpar;Telugu&rpar; | Amazon Prime Video](https://www.1tamilmv.click/index.php?/forums/topic/165602-the-lord-of-the-rings-the-rings-of-power-%E2%80%93-main-teaser-telugu-amazon-prime-video/&do=findComment&comment=330826)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
