@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Veyyi Abaddalu &lpar;2013&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-850MB / 360p-650MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165562-veyyi-abaddalu-2013-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-850mb-360p-650mb-240p-450mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=330776)
 - [Tomorrow &lpar;July 15&rpar; OTT Release Movies Complete List | Television Premiere Movies](https://www.1tamilmv.click/index.php?/forums/topic/165561-tomorrow-july-15-ott-release-movies-complete-list-television-premiere-movies/&do=findComment&comment=330775)
 - [Soggade Chinni Nayana &lpar;2016&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165560-soggade-chinni-nayana-2016-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-700mb-240p-450mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=330774)
 - [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330773)
 - [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330772)
-- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330771)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
