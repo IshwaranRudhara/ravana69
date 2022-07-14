@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Star Wars: The Book of Boba Fett &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165526-star-wars-the-book-of-boba-fett-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330777)
-- [Veyyi Abaddalu &lpar;2013&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-850MB / 360p-650MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165562-veyyi-abaddalu-2013-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-850mb-360p-650mb-240p-450mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=330776)
-- [Tomorrow &lpar;July 15&rpar; OTT Release Movies Complete List | Television Premiere Movies](https://www.1tamilmv.click/index.php?/forums/topic/165561-tomorrow-july-15-ott-release-movies-complete-list-television-premiere-movies/&do=findComment&comment=330775)
-- [Soggade Chinni Nayana &lpar;2016&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165560-soggade-chinni-nayana-2016-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-700mb-240p-450mb-avc-dd51-192kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=330774)
-- [Andala Rakshasi &lpar;2012&rpar; Telugu TRUE WEB-DL - [1080p-9GB-4GB / 720p-1.4GB / 480p-900MB / 360p-450MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165559-andala-rakshasi-2012-telugu-true-web-dl-1080p-9gb-4gb-720p-14gb-480p-900mb-360p-450mb-avc-aac-gdrivelinks/&do=findComment&comment=330767)
+- [CHOODIWALA PART 2 2022 HINDI ULLU WEB SERIES 720P | 1080P HDRIP](https://www.1tamilmv.click/index.php?/forums/topic/165567-choodiwala-part-2-2022-hindi-ullu-web-series-720p-1080p-hdrip/&do=findComment&comment=330784)
+- [CHOODIWALA PART 1 2022 HINDI ULLU WEB SERIES 720P | 1080P HDRIP](https://www.1tamilmv.click/index.php?/forums/topic/165566-choodiwala-part-1-2022-hindi-ullu-web-series-720p-1080p-hdrip/&do=findComment&comment=330783)
+- [AP Housing Beneficiaries E-KYC Process | Housesites eKYC Dashboard](https://www.1tamilmv.click/index.php?/forums/topic/165565-ap-housing-beneficiaries-e-kyc-process-housesites-ekyc-dashboard/&do=findComment&comment=330782)
+- [Thevar Magan &lpar;1992&rpar; 1080P Tamil- HC-Esub - 1.8GB.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165564-thevar-magan-1992-1080p-tamil-hc-esub-18gbmkv/&do=findComment&comment=330781)
+- [Thevar Magan &lpar;1992&rpar; 1080P Tamil- HC-Esub - 1.8GB.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165564-thevar-magan-1992-1080p-tamil-hc-esub-18gbmkv/&do=findComment&comment=330780)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
