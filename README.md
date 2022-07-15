@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [RRR &lpar;2022&rpar; Multi Telugu+Tamil+Malayalam+Hindi &lpar;MUSIC VIDEO ALBUM&rpar; NF 4K WEB-HD UNTOUCHED - HEVC - [ Hindi DD+5.1 ATMOS &lpar;768Kbps&rpar; - Telugu+Tamil+Malayalam DD+5.1 ATMOS &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/165677-rrr-2022-multi-telugutamilmalayalamhindi-music-video-album-nf-4k-web-hd-untouched-hevc-hindi-dd51-atmos-768kbps-telugutamilmalayalam-dd51-atmos-448kbps-e-sub-by-beast-uk/&do=findComment&comment=330952)
+- [Resident Evil &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Hindi + Eng] - 5.6GB - 2GB &amp; 1GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165535-resident-evil-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-hindi-eng-56gb-2gb-1gb-esub/&do=findComment&comment=330951)
 - [Earn Money 🤑💰 Website](https://www.1tamilmv.click/index.php?/forums/topic/165676-earn-money-%F0%9F%A4%91%F0%9F%92%B0-website/&do=findComment&comment=330950)
 - [Kaduva &lpar;2022&rpar; Hindi Proper HQ PreDVD - [720p - x264 - 1.1GB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165673-kaduva-2022-hindi-proper-hq-predvd-720p-x264-11gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=330947)
 - [Kung Fu Panda: The Dragon Knight S01 COMPLETE WEBRIP 720p x265 10bit](https://www.1tamilmv.click/index.php?/forums/topic/165672-kung-fu-panda-the-dragon-knight-s01-complete-webrip-720p-x265-10bit/&do=findComment&comment=330946)
-- [Jurassic World Dominion 2022 720P WEBRIP x265 10bit](https://www.1tamilmv.click/index.php?/forums/topic/165671-jurassic-world-dominion-2022-720p-webrip-x265-10bit/&do=findComment&comment=330945)
-- [Hit The First Case &lpar;2022&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2GB - 1.3GB | x264 - 700MB - 400MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165670-hit-the-first-case-2022-hindi-hq-predvd-1080p-720p-x264-2gb-13gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=330944)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
