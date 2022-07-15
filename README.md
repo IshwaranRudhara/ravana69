@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Sivakasi &lpar;2005&rpar; Tamil - API DVD9 UNTOUCHED - REMUXED - DD &amp; DTS 5.1 - 7GB](https://www.1tamilmv.click/index.php?/forums/topic/165642-%C2%A0sivakasi-2005-tamil-api-dvd9-untouched-remuxed-dd-dts-51-7gb%C2%A0/&do=findComment&comment=330904)
-- [Sivakasi &lpar;2005&rpar; Tamil - API DVD9 UNTOUCHED - REMUXED - DD &amp; DTS 5.1 - 7GB [MovieShop] [G-Drive]](https://www.1tamilmv.click/index.php?/forums/topic/133997-sivakasi-2005-tamil-api-dvd9-untouched-remuxed-dd-dts-51-7gb%C2%A0movieshop-g-drive/&do=findComment&comment=330903)
-- [Maamanithan &lpar;2022&rpar; Compressed Version Tamil HQ-Google Drive](https://www.1tamilmv.click/index.php?/forums/topic/165641-maamanithan-2022-compressed-version-tamil-hq-google-drive/&do=findComment&comment=330902)
-- [Jurassic World Dominion &lpar;2022&rpar; Multi Audio [Telugu+ Tamil + Hindi + English] Proper WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.1GB] - Soft ESub](https://www.1tamilmv.click/index.php?/forums/topic/165613-jurassic-world-dominion-2022-multi-audio-telugu-tamil-hindi-english-proper-web-dl-1080p-720p-x264-dd51-640kbps-27gb-11gb-soft-esub/&do=findComment&comment=330901)
-- [BUSINESSMAN - TELUGU - FULLHD - BLURAY](https://www.1tamilmv.click/index.php?/forums/topic/165640-businessman-telugu-fullhd-bluray/&do=findComment&comment=330900)
+- [Dhool &lpar;2002&rpar; &lpar;Music Video Album&rpar; - AMZN - 1080p - &lpar;DTS+Dolby&rpar; 5.1 - DVDAud&#39;s - 2GB](https://www.1tamilmv.click/index.php?/forums/topic/165651-dhool-2002-music-video-album-amzn-1080p-dtsdolby-51-dvdauds-2gb/&do=findComment&comment=330915)
+- [Thanga Pathakkam &lpar;1974&rpar; Tamil 576p AMZN WEB-DL - DD+2.0 - H.264- 3.3GB](https://www.1tamilmv.click/index.php?/forums/topic/165650-thanga-pathakkam-1974-tamil-576p-amzn-web-dl-dd20-h264-33gb/&do=findComment&comment=330914)
+- [Maa Neella Tank &lpar;2022&rpar; HDRip Telugu Season 1](https://www.1tamilmv.click/index.php?/forums/topic/165649-maa-neella-tank-2022-hdrip-telugu-season-1/&do=findComment&comment=330913)
+- [Balu &lpar;2004&rpar; &lpar;Music Video Album&rpar; - Amz - 1080p - H264 - DD5.1 - DVDAud - 1.6GB - [avatar]](https://www.1tamilmv.click/index.php?/forums/topic/165648-balu-2004-music-video-album-amz-1080p-h264-dd51-dvdaud-16gb-avatar/&do=findComment&comment=330912)
+- [Gargi &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165647-gargi-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=330911)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
