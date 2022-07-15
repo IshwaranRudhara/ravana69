@@ -51,7 +51,7 @@
 
 ![image](https://user-images.githubusercontent.com/47528708/175298537-0623dc00-7b1a-4ec1-b5b1-71768763a234.png)
 
-<img width="148" alt="pull-shark-default" src="https://user-images.githubusercontent.com/47528708/176419715-70981865-4dc6-489a-8a1a-06842db67b15.gif"> <img width="148" alt="arctic-code-vault-contributor-default" src="https://user-images.githubusercontent.com/47528708/175267501-e1fbbb8f-c2b2-4882-b865-2ac4debef26c.png"> <img width="148" alt="yolo-default" src="https://user-images.githubusercontent.com/47528708/175267654-281a1880-1129-4b7b-bf2f-de5dd2bc5afa.png"> <img width="148" alt="public-sponsor-default" src="https://user-images.githubusercontent.com/47528708/175268448-2e78cc75-fb25-4d76-bd22-7df520446b45.png"> <img width="148" alt="mars-2020-contributor-default" src="https://user-images.githubusercontent.com/47528708/175268475-de6d987a-3be9-4353-86a5-23b422559355.png"> <img width="148" alt="quickdraw-default" src="https://user-images.githubusercontent.com/47528708/179148665-33e7c2c8-5d95-413e-8b25-6862820a5fe7.png"> <img width="148" alt="galaxy-brain-bronze" src="https://user-images.githubusercontent.com/47528708/176419717-e2fdca8b-0fdc-47dd-9511-a7ff52178a33.gif">
+<img width="148" alt="pull-shark-default" src="https://user-images.githubusercontent.com/47528708/176419715-70981865-4dc6-489a-8a1a-06842db67b15.gif"> <img width="148" alt="cat" src="https://user-images.githubusercontent.com/47528708/179149594-60701d0e-e626-415f-9958-80736351eadd.gif"> <img width="148" alt="arctic-code-vault-contributor-default" src="https://user-images.githubusercontent.com/47528708/175267501-e1fbbb8f-c2b2-4882-b865-2ac4debef26c.png"> <img width="148" alt="yolo-default" src="https://user-images.githubusercontent.com/47528708/175267654-281a1880-1129-4b7b-bf2f-de5dd2bc5afa.png"> <img width="148" alt="public-sponsor-default" src="https://user-images.githubusercontent.com/47528708/175268448-2e78cc75-fb25-4d76-bd22-7df520446b45.png"> <img width="148" alt="mars-2020-contributor-default" src="https://user-images.githubusercontent.com/47528708/175268475-de6d987a-3be9-4353-86a5-23b422559355.png"> <img width="148" alt="quickdraw-default" src="https://user-images.githubusercontent.com/47528708/179148665-33e7c2c8-5d95-413e-8b25-6862820a5fe7.png"> <img width="148" alt="galaxy-brain-bronze" src="https://user-images.githubusercontent.com/47528708/176419717-e2fdca8b-0fdc-47dd-9511-a7ff52178a33.gif"> <img width="148" alt="pea" src="https://user-images.githubusercontent.com/47528708/179149608-800ce6e1-7d24-4bfe-8e84-5628e6d5497d.gif">
 
 ![t_logo_sprite](https://user-images.githubusercontent.com/47528708/175293007-21ff1792-1fca-4be3-bcae-12fdc3aa414f.svg)
 
@@ -66,5 +66,4 @@
 # Hypnotic Loop
 
 https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-ac35-5ebb89644732.mp4
-
 
