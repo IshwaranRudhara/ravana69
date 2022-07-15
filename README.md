@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Star Wars: The Book of Boba Fett &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165526-star-wars-the-book-of-boba-fett-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330943)
+- [Nilai Marandhavan &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165669-nilai-marandhavan-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=330942)
+- [Maamanithan &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165591-maamanithan-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-dd51-384kbps-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330941)
+- [Maa Neella Tank &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 8.4GB - 4.4GB &amp; 2.1GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.click/index.php?/forums/topic/165627-maa-neella-tank-2022-s01-ep-01-08-telugu-true-web-dl-4k-1080p-720p-hevc-avc-84gb-44gb-21gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=330940)
 - [Sundari &lpar;2021&rpar; Telugu HDRip](https://www.1tamilmv.click/index.php?/forums/topic/165668-sundari-2021-telugu-hdrip/&do=findComment&comment=330939)
-- [Persuasion &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165667-persuasion-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-3gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=330938)
-- [Michael Jackson - Dangerous &lpar;Special Edition&rpar; - DD 5.1 640Kbps &lpar;FLAC Upmix&rpar; - 1.2GB](https://www.1tamilmv.click/index.php?/forums/topic/165666-michael-jackson-dangerous-special-edition-dd-51-640kbps-flac-upmix-12gb/&do=findComment&comment=330937)
-- [L0v€ &lpar;2022&rpar; New South Hindi Dubbed Full Movie HD](https://www.1tamilmv.click/index.php?/forums/topic/165665-l0v%E2%82%AC-2022-new-south-hindi-dubbed-full-movie-hd/&do=findComment&comment=330936)
-- [Gargi &lpar;2022&rpar; Telugu Proper HQ PreDVD - [720p - x264 - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165664-gargi-2022-telugu-proper-hq-predvd-720p-x264-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=330935)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
