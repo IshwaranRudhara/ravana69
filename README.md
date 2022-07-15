@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kaduva &lpar;2022&rpar; Hindi Proper HQ PreDVD - [720p - x264 - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165673-kaduva-2022-hindi-proper-hq-predvd-720p-x264-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=330947)
+- [Earn Money 🤑💰 Website](https://www.1tamilmv.click/index.php?/forums/topic/165676-earn-money-%F0%9F%A4%91%F0%9F%92%B0-website/&do=findComment&comment=330950)
+- [Kaduva &lpar;2022&rpar; Hindi Proper HQ PreDVD - [720p - x264 - 1.1GB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165673-kaduva-2022-hindi-proper-hq-predvd-720p-x264-11gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=330947)
 - [Kung Fu Panda: The Dragon Knight S01 COMPLETE WEBRIP 720p x265 10bit](https://www.1tamilmv.click/index.php?/forums/topic/165672-kung-fu-panda-the-dragon-knight-s01-complete-webrip-720p-x265-10bit/&do=findComment&comment=330946)
 - [Jurassic World Dominion 2022 720P WEBRIP x265 10bit](https://www.1tamilmv.click/index.php?/forums/topic/165671-jurassic-world-dominion-2022-720p-webrip-x265-10bit/&do=findComment&comment=330945)
 - [Hit The First Case &lpar;2022&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2GB - 1.3GB | x264 - 700MB - 400MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165670-hit-the-first-case-2022-hindi-hq-predvd-1080p-720p-x264-2gb-13gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=330944)
-- [Star Wars: The Book of Boba Fett &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi + Malayalam + English] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165526-star-wars-the-book-of-boba-fett-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-malayalam-english-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=330943)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
