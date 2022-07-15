@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thanga Pathakkam &lpar;1974&rpar; Tamil 576p AMZN WEB-DL - DD+2.0 - H.264- 3.3GB](https://www.1tamilmv.click/index.php?/forums/topic/165650-thanga-pathakkam-1974-tamil-576p-amzn-web-dl-dd20-h264-33gb/&do=findComment&comment=330957)
+- [Thanga Pathakkam Updated Link &lpar;1974&rpar; Tamil 576p AMZN WEB-DL - DD+2.0 - H.264- 3.3GB](https://www.1tamilmv.click/index.php?/forums/topic/165680-thanga-pathakkam-updated-link-1974-tamil-576p-amzn-web-dl-dd20-h264-33gb/&do=findComment&comment=330956)
 - [Balu &lpar;2004&rpar; &lpar;Music Video Album&rpar; - Amz - 1080p - H264 - DD5.1 - DVDAud - 1.6GB - [avatar]](https://www.1tamilmv.click/index.php?/forums/topic/165648-balu-2004-music-video-album-amz-1080p-h264-dd51-dvdaud-16gb-avatar/&do=findComment&comment=330955)
 - [Gargi &lpar;2022&rpar; Tamil Proper HQ PreDVD - 720p - x264 - HQ Clean Audio - MP3 - 1.5GB ​​​​​​​](https://www.1tamilmv.click/index.php?/forums/topic/165679-gargi-2022-tamil-proper-hq-predvd-720p-x264-hq-clean-audio-mp3-15gb-%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B/&do=findComment&comment=330954)
 - [Download Iravin Nizhal full movie &lpar;2022&rpar; [Tamil - 720p HQ PreDVDRip - x264 - AAC - 1.4GB - HQ Line Audio]](https://www.1tamilmv.click/index.php?/forums/topic/165678-download-iravin-nizhal-full-movie-2022-tamil-720p-hq-predvdrip-x264-aac-14gb-hq-line-audio/&do=findComment&comment=330953)
-- [RRR &lpar;2022&rpar; Multi Telugu+Tamil+Malayalam+Hindi &lpar;MUSIC VIDEO ALBUM&rpar; NF 4K WEB-HD UNTOUCHED - HEVC - [ Hindi DD+5.1 ATMOS &lpar;768Kbps&rpar; - Telugu+Tamil+Malayalam DD+5.1 ATMOS &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/165677-rrr-2022-multi-telugutamilmalayalamhindi-music-video-album-nf-4k-web-hd-untouched-hevc-hindi-dd51-atmos-768kbps-telugutamilmalayalam-dd51-atmos-448kbps-e-sub-by-beast-uk/&do=findComment&comment=330952)
-- [Resident Evil &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Hindi + Eng] - 5.6GB - 2GB &amp; 1GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165535-resident-evil-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-hindi-eng-56gb-2gb-1gb-esub/&do=findComment&comment=330951)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
