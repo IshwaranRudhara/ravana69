@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Sammathame &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.5GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165596-sammathame-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-35gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330871)
-- [Sammathame &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.5GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165596-sammathame-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-35gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330870)
-- [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;43-46&rpar; Tamil HQ HDRip - 720p - x264 - AAC - 400MB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165423-kanaa-kaanum-kaalangal-2022-s01-ep-43-46-tamil-hq-hdrip-720p-x264-aac-400mb-esub/&do=findComment&comment=330869)
-- [Bestie &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 3.7GB - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165497-bestie-2022-tamil-true-web-dl-1080p-720p-avc-aac-37gb-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=330868)
-- [Maa Neella Tank &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu] - 2.3GB - 1.4GB &amp; 500MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165616-maa-neella-tank-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-23gb-14gb-500mb-esub/&do=findComment&comment=330867)
+- [Janhit Mein Jaari &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165598-janhit-mein-jaari-2022-hindi-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=330880)
+- [Veetla Vishesham &lpar;2022&rpar; Tamil Proper TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.4GB - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.click/index.php?/forums/topic/165592-veetla-vishesham-2022-tamil-proper-true-web-dl-4k-1080p-720p-hevc-avc-dd51-192kbps-44gb-23gb-14gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=330879)
+- [Maamanithan &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165591-maamanithan-2022-tamil-true-web-dl-4k-1080p-720p-hevc-avc-dd51-384kbps-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=330878)
+- [Earn Money 🤑💰](https://www.1tamilmv.click/index.php?/forums/topic/165629-earn-money-%F0%9F%A4%91%F0%9F%92%B0/&do=findComment&comment=330877)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=330876)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
