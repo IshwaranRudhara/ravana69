@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vaashi &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 3.8GB - 2.1GB - 1.5GB &amp; 900MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165724-vaashi-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-38gb-21gb-15gb-900mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=331060)
 - [GODSE &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub [Gdrive links]](https://www.1tamilmv.click/index.php?/forums/topic/165729-godse-2022-telugu-true-web-dl-1080p-720p-avc-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-700mb-400mb-250mb-esub-gdrive-links/&do=findComment&comment=331059)
 - [Vaashi &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 3.8GB - 2.1GB - 1.5GB &amp; 900MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165724-vaashi-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-38gb-21gb-15gb-900mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=331058)
 - [Vaashi &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 6GB - 3GB &amp; 1.5GB] - [x264 - 800MB - 500MB &amp; 250MB] - ESub [Gdrive]](https://www.1tamilmv.click/index.php?/forums/topic/165727-vaashi-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-6gb-3gb-15gb-x264-800mb-500mb-250mb-esub-gdrive/&do=findComment&comment=331056)
 - [Vaashi &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165726-vaashi-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=331055)
-- [Vaashi &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 3.8GB - 2.1GB - 1.5GB &amp; 900MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165724-vaashi-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-38gb-21gb-15gb-900mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=331054)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
