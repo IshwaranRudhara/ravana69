@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [35 Telugu Movies - 1080p WEB DL H.264 DD5.1/AAC ESub 120GB [GDrive]](https://www.1tamilmv.click/index.php?/forums/topic/165707-35-telugu-movies-1080p-web-dl-h264-dd51aac-esub-120gb-gdrive/&do=findComment&comment=331019)
+- [Resident Evil &lpar;2022&rpar; S01 Merged All Episodes In One File NETFLIX WEB-DL [Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165706-resident-evil-2022-s01-merged-all-episodes-in-one-file-netflix-web-dl-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=331018)
 - [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331017)
 - [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331016)
 - [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331015)
-- [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331014)
-- [Megham Karukatha &lpar;From -Thiruchitrambalam&rpar; - Dhanush, Anirudh Ravichander Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 62 MB | 34 MB | 11 MB | 5 MB](https://www.1tamilmv.click/index.php?/forums/topic/165703-megham-karukatha-from-thiruchitrambalam-dhanush-anirudh-ravichander-musical-flac-24bit16bit-mp3-320kbps128kbps-62-mb-34-mb-11-mb-5-mb/&do=findComment&comment=331013)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
