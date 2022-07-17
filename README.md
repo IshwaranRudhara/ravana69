@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Minions.The.Rise.Of.Gru.2022.720p.TELESYNC.x265-iDiOTS - ENGLISH &lpar;Duration : 1 h 20 min&rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165787-minionstheriseofgru2022720ptelesyncx265-idiots-english-duration-1-h-20-min/&do=findComment&comment=331153)
 - [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331152)
 - [Shoorveer &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165786-shoorveer-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=331151)
 - [Annaamalai &lpar;1992&rpar; Tamil TRUE WEB-DL 720p UNTOUCHED AVC AAC - 4.1GB - [Direct Link] - [Major]](https://www.1tamilmv.click/index.php?/forums/topic/130064-annaamalai-1992%C2%A0tamil-true-web-dl-720p-untouched-avc-aac-41gb-direct-link-major/&do=findComment&comment=331150)
 - [Maanbumigu Marumagan [Alludu Adhurs] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 850MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165768-maanbumigu-marumagan-alludu-adhurs-2022-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331149)
-- [Kanda Naal Mudhal &lpar;2005&rpar; Tamil - AYN DVD9 UNTOUCHED - REMUXED - DD 5.1 - 5.6GB - Esub.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165785-kanda-naal-mudhal-2005-tamil-ayn-dvd9-untouched-remuxed-dd-51-56gb-esubmkv/&do=findComment&comment=331148)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
