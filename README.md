@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Critical Keertanegalu &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165756-critical-keertanegalu-2022-kannada-true-web-dl-1080p-720p-avc-23gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=331112)
-- [Elaveezhapoonchira &lpar;2022&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/165754-elaveezhapoonchira-2022-malayalam-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=331110)
-- [Ponniyin Selvan -1 Teaser [Tam + Tel + Mal + Hin + Kan] | Mani Ratnam | AR Rahman | Subaskaran | Lyca Productions | Madras Talkies](https://www.1tamilmv.click/index.php?/forums/topic/165256-ponniyin-selvan-1-teaser-tam-tel-mal-hin-kan-mani-ratnam-ar-rahman-subaskaran-lyca-productions-madras-talkies/&do=findComment&comment=331109)
-- [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331108)
-- [Gultoo &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 2.8GB - 2.1GB - 982MB &amp; 637MB | - x264 - 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165152-gultoo-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-28gb-21gb-982mb-637mb-x264-400mb-esub/&do=findComment&comment=331107)
+- [Anushka Wet Dress Song - Damarukam - &lpar;2012&rpar; - Telugu - 88MB](https://www.1tamilmv.click/index.php?/forums/topic/107562-anushka-wet-dress-song-damarukam-2012-telugu-88mb/&do=findComment&comment=331119)
+- [Damarukam - Telugu - Videosongs - BLURAY 1080P - FULLHD](https://www.1tamilmv.click/index.php?/forums/topic/114885-damarukam-telugu-videosongs-bluray-1080p-fullhd/&do=findComment&comment=331118)
+- [Damarukam - Telugu - Videosongs - BLURAY 1080P - FULLHD](https://www.1tamilmv.click/index.php?/forums/topic/165760-damarukam-telugu-videosongs-bluray-1080p-fullhd/&do=findComment&comment=331117)
+- [@Benzmovies - RRR &lpar;2022&rpar; 2160p HQ ZEE5 WEB-DL x265 10bit [Telugu &lpar;DD+ 5.1 ATMOS - 448Kbps&rpar;] ESubs Benz.mkv 13.3GB](https://www.1tamilmv.click/index.php?/forums/topic/165759-benzmovies-rrr-2022-2160p-hq-zee5-web-dl-x265-10bit-telugu-dd-51-atmos-448kbps-esubs-benzmkv-133gb/&do=findComment&comment=331116)
+- [@Benzmovies - Rebel &lpar;2012&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HD MA &lpar;2686Kbps&rpar; + DTS 5.1 &lpar;1509Kbps&rpar;] + ESub - 14GB Benz.mkv 14GB](https://www.1tamilmv.click/index.php?/forums/topic/165758-benzmovies-rebel-2012-telugu-blu-ray-1080p-avc-dts-hd-ma-2686kbps-dts-51-1509kbps-esub-14gb-benzmkv-14gb/&do=findComment&comment=331115)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
