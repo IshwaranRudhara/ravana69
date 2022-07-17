@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vaalee &lpar;1999&rpar; Tamil API - 1080p  DVDRip - DD 5.1 - 2.4GB.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165783-vaalee-1999-tamil-api-1080p-dvdrip-dd-51-24gbmkv/&do=findComment&comment=331146)
-- [Ulavuthurai &lpar;1998&rpar; [1080p AMZN WEB-DL - x264 - AVC - AAC.2.0 - 4.4GB].mkv](https://www.1tamilmv.click/index.php?/forums/topic/165782-ulavuthurai-1998-1080p-amzn-web-dl-x264-avc-aac20-44gbmkv/&do=findComment&comment=331145)
-- [Kadhal Desam&lpar;1996&rpar;-1080P-Cut~Tamil AAC 2.0~.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165781-kadhal-desam1996-1080p-cut~tamil-aac-20~mkv/&do=findComment&comment=331144)
-- [Vaashi &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam&rpar; - 3.8GB - 2.1GB - 1.5GB &amp; 900MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165724-vaashi-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-38gb-21gb-15gb-900mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=331143)
-- [I &lpar;2015&rpar; Tamil UnCut 4K Ultra-HD DD x265 HEVC 4.5GB  E-Subs](https://www.1tamilmv.click/index.php?/forums/topic/165780-i-2015-tamil-uncut-4k-ultra-hd-dd-x265-hevc-45gb-e-subs/&do=findComment&comment=331142)
+- [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331152)
+- [Shoorveer &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165786-shoorveer-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=331151)
+- [Annaamalai &lpar;1992&rpar; Tamil TRUE WEB-DL 720p UNTOUCHED AVC AAC - 4.1GB - [Direct Link] - [Major]](https://www.1tamilmv.click/index.php?/forums/topic/130064-annaamalai-1992%C2%A0tamil-true-web-dl-720p-untouched-avc-aac-41gb-direct-link-major/&do=findComment&comment=331150)
+- [Maanbumigu Marumagan [Alludu Adhurs] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 850MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165768-maanbumigu-marumagan-alludu-adhurs-2022-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331149)
+- [Kanda Naal Mudhal &lpar;2005&rpar; Tamil - AYN DVD9 UNTOUCHED - REMUXED - DD 5.1 - 5.6GB - Esub.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165785-kanda-naal-mudhal-2005-tamil-ayn-dvd9-untouched-remuxed-dd-51-56gb-esubmkv/&do=findComment&comment=331148)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
