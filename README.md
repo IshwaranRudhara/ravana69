@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Anushka Wet Dress Song - Damarukam - &lpar;2012&rpar; - Telugu - 88MB](https://www.1tamilmv.click/index.php?/forums/topic/107562-anushka-wet-dress-song-damarukam-2012-telugu-88mb/&do=findComment&comment=331119)
-- [Damarukam - Telugu - Videosongs - BLURAY 1080P - FULLHD](https://www.1tamilmv.click/index.php?/forums/topic/114885-damarukam-telugu-videosongs-bluray-1080p-fullhd/&do=findComment&comment=331118)
-- [Damarukam - Telugu - Videosongs - BLURAY 1080P - FULLHD](https://www.1tamilmv.click/index.php?/forums/topic/165760-damarukam-telugu-videosongs-bluray-1080p-fullhd/&do=findComment&comment=331117)
-- [@Benzmovies - RRR &lpar;2022&rpar; 2160p HQ ZEE5 WEB-DL x265 10bit [Telugu &lpar;DD+ 5.1 ATMOS - 448Kbps&rpar;] ESubs Benz.mkv 13.3GB](https://www.1tamilmv.click/index.php?/forums/topic/165759-benzmovies-rrr-2022-2160p-hq-zee5-web-dl-x265-10bit-telugu-dd-51-atmos-448kbps-esubs-benzmkv-133gb/&do=findComment&comment=331116)
-- [@Benzmovies - Rebel &lpar;2012&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HD MA &lpar;2686Kbps&rpar; + DTS 5.1 &lpar;1509Kbps&rpar;] + ESub - 14GB Benz.mkv 14GB](https://www.1tamilmv.click/index.php?/forums/topic/165758-benzmovies-rebel-2012-telugu-blu-ray-1080p-avc-dts-hd-ma-2686kbps-dts-51-1509kbps-esub-14gb-benzmkv-14gb/&do=findComment&comment=331115)
+- [Maanbumigu Marumagan [Alludu Adhurs] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 850MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165768-maanbumigu-marumagan-alludu-adhurs-2022-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331128)
+- [Gargi &lpar;2022&rpar; DVDScr Telugu Full Movie Watch](https://www.1tamilmv.click/index.php?/forums/topic/165767-gargi-2022-dvdscr-telugu-full-movie-watch/&do=findComment&comment=331127)
+- [[STREAMABLE] [18+] IRAVIN NIZHAL &lpar;2022&rpar; TAMIL PROPER HQ PREDVD - [1080P &amp; 720P - X264 - 2.5GB - 1.4GB &amp; 900MB | X264 - 700MB - 400MB &amp; 250MB] - HQ CLEAN AUDIO](https://www.1tamilmv.click/index.php?/forums/topic/165766-streamable-18-iravin-nizhal-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=331126)
+- [Doraemon: Nobita’s New Great Adventure into the Underworld in Tamil - 720p](https://www.1tamilmv.click/index.php?/forums/topic/165765-doraemon-nobita%E2%80%99s-new-great-adventure-into-the-underworld-in-tamil-720p/&do=findComment&comment=331125)
+- [Megham Karukatha &lpar;From -Thiruchitrambalam&rpar; - Dhanush, Anirudh Ravichander Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 62 MB | 34 MB | 11 MB | 5 MB](https://www.1tamilmv.click/index.php?/forums/topic/165703-megham-karukatha-from-thiruchitrambalam-dhanush-anirudh-ravichander-musical-flac-24bit16bit-mp3-320kbps128kbps-62-mb-34-mb-11-mb-5-mb/&do=findComment&comment=331124)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
