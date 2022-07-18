@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shoorveer &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi] - 3.5GB - 1.5GB &amp; 500MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165835-shoorveer-2022-s01-ep01-08-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-35gb-15gb-500mb-esub/&do=findComment&comment=331249)
+- [@Benzmovies - Chirutha &lpar;2007&rpar; Telugu WEB-DL - 1080p - AVC - x264 - DDP2.0 &lpar;224kbps&rpar; - ESub - 10.3GB Benz.mkv](https://www.1tamilmv.click/index.php?/forums/topic/165847-benzmovies-chirutha-2007-telugu-web-dl-1080p-avc-x264-ddp20-224kbps-esub-103gb-benzmkv/&do=findComment&comment=331248)
 - [[G-DRIVE] CRANK DUOLOGY &lpar;2006 - 2009&rpar; BLURAY - 1080P &amp; 720P - X264 - &lpar;DD+5.1 - 640KBPS&rpar; [TAMIL + TELUGU &lpar;1&rpar; + HINDI + ENG] - 4GB - 1.7GB &amp; 400MB - ESUB](https://www.1tamilmv.click/index.php?/forums/topic/165846-g-drive-crank-duology-2006-2009-bluray-1080p-720p-x264-dd51-640kbps-tamil-telugu-1-hindi-eng-4gb-17gb-400mb-esub/&do=findComment&comment=331247)
 - [[G-DRIVE] THOR: LOVE AND THUNDER &lpar;2022&rpar; TAMIL+TELUGU NEW HDTC-RIP - 720P - X264 - HQ CLEAN AUDIO](https://www.1tamilmv.click/index.php?/forums/topic/165845-g-drive-thor-love-and-thunder-2022-tamiltelugu-new-hdtc-rip-720p-x264-hq-clean-audio/&do=findComment&comment=331246)
 - [Jurassic World Dominion &lpar;2022&rpar; Multi Audio [Telugu+ Tamil + Hindi + English] Proper WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.1GB] - Soft ESub](https://www.1tamilmv.click/index.php?/forums/topic/165613-jurassic-world-dominion-2022-multi-audio-telugu-tamil-hindi-english-proper-web-dl-1080p-720p-x264-dd51-640kbps-27gb-11gb-soft-esub/&do=findComment&comment=331245)
-- [Coffee With Kadhal - Baby Gurl Music Video - U1 - 1080P &amp; 4K - DD5.1 &amp; DTSHD MA 5.1 &lpar;Lossless FLAC Upmix&rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165844-coffee-with-kadhal-baby-gurl-music-video-u1-1080p-4k-dd51-dtshd-ma-51-lossless-flac-upmix/&do=findComment&comment=331244)
-- [DORAEMON : NOBITA DRIFTS IN THE UNIVERSE &lpar;1999&rpar; – TAMIL DUBBED &lpar;original audio&rpar;](https://www.1tamilmv.click/index.php?/forums/topic/165843-doraemon-nobita-drifts-in-the-universe-1999-%E2%80%93-tamil-dubbed-original-audio/&do=findComment&comment=331243)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
