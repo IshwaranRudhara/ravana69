@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Thor: Love and Thunder &lpar;2022&rpar; [Tamil + Telugu] Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165797-thor-love-and-thunder-2022-tamil-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=331174)
-- [Maanbumigu Marumagan &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165796-maanbumigu-marumagan-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=331173)
-- [Narigal &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165795-narigal-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=331172)
-- [Critical Keertanegalu &lpar;2022&rpar; Kannada Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165794-critical-keertanegalu-2022-kannada-full-movie-watch-now-hq-for-free/&do=findComment&comment=331171)
-- [Vaashi &lpar;2022&rpar; HDRip Original [Telugu + Tamil + Malayalam] Full Movie](https://www.1tamilmv.click/index.php?/forums/topic/165793-vaashi-2022-hdrip-original-telugu-tamil-malayalam-full-movie/&do=findComment&comment=331170)
+- [Alludu Adhurs [Maanbumigu Marumagan] &lpar;2021&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.9GB &amp; 1.5GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.click/index.php?/forums/topic/165800-alludu-adhurs-maanbumigu-marumagan-2021-true-web-dl-1080p-720p-avc-tamil-telugu-29gb-15gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=331179)
+- [Vikram 2022 720p WEBRip 2CH x265 10bit HEVC / 1080p WEBRip 2CH x265 10bit HEVC](https://www.1tamilmv.click/index.php?/forums/topic/165799-vikram-2022-720p-webrip-2ch-x265-10bit-hevc-1080p-webrip-2ch-x265-10bit-hevc/&do=findComment&comment=331178)
+- [Sammathame &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.5GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165596-sammathame-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-35gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331177)
+- [Jujutsu Kaisen &lpar;2020&rpar; S01 - NF - WEB-DL [1080p - Japanese - DDP2.0] - H.264 - 7GB - MSub](https://www.1tamilmv.click/index.php?/forums/topic/165798-jujutsu-kaisen-2020-s01-nf-web-dl-1080p-japanese-ddp20-h264-7gb-msub/&do=findComment&comment=331176)
+- [Ethir Neechal &lpar;2013&rpar; Original Motion Picture Soundtrack - An Anirudh Ravichander Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 179 MB | 56 MB | 23 MB](https://www.1tamilmv.click/index.php?/forums/topic/165792-ethir-neechal-2013-original-motion-picture-soundtrack-an-anirudh-ravichander-musical-flac-16bit-mp3-320kbps128kbps-179-mb-56-mb-23-mb/&do=findComment&comment=331175)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
