@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Shoorveer &lpar;2022&rpar; Complete S01 Merged All Episodes In One File DSNP WEB-DL [Telugu + Tamil + Hindi] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/165786-shoorveer-2022-complete-s01-merged-all-episodes-in-one-file-dsnp-web-dl-telugu-tamil-hindi-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=331161)
-- [Critical Keertanegalu &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165756-critical-keertanegalu-2022-kannada-true-web-dl-1080p-720p-avc-23gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=331160)
-- [Megham Karukatha &lpar;From -Thiruchitrambalam&rpar; - Dhanush, Anirudh Ravichander Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 62 MB | 34 MB | 11 MB | 5 MB](https://www.1tamilmv.click/index.php?/forums/topic/165703-megham-karukatha-from-thiruchitrambalam-dhanush-anirudh-ravichander-musical-flac-24bit16bit-mp3-320kbps128kbps-62-mb-34-mb-11-mb-5-mb/&do=findComment&comment=331159)
-- [Yaanai.2022.Original.Motion.Picture.Soundtrack.G.V.Prakash Kumar Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 419 MB | 189 MB | 69 MB | 35 MB](https://www.1tamilmv.click/index.php?/forums/topic/164887-yaanai2022originalmotionpicturesoundtrackgvprakash-kumar-musical-flac-24bit16bit-mp3-320kbps128kbps-419-mb-189-mb-69-mb-35-mb/&do=findComment&comment=331158)
-- [Transformers Pentalogy &lpar;2007 - 2018&rpar; 1080p Bluray + HQ WEB-DL [Hindi + Tamil + Telugu + English]  &lpar;Dolby Digital Audios&rpar; [G-DRIVE] Ninja 360](https://www.1tamilmv.click/index.php?/forums/topic/106520-transformers-pentalogy-2007-2018-1080p-bluray-hq-web-dl-hindi-tamil-telugu-english-dolby-digital-audios-g-drive-ninja-360/&do=findComment&comment=331157)
+- [Thor: Love and Thunder &lpar;2022&rpar; [Tamil + Telugu] Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165797-thor-love-and-thunder-2022-tamil-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=331174)
+- [Maanbumigu Marumagan &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165796-maanbumigu-marumagan-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=331173)
+- [Narigal &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165795-narigal-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=331172)
+- [Critical Keertanegalu &lpar;2022&rpar; Kannada Full Movie Watch Now HQ For Free](https://www.1tamilmv.click/index.php?/forums/topic/165794-critical-keertanegalu-2022-kannada-full-movie-watch-now-hq-for-free/&do=findComment&comment=331171)
+- [Vaashi &lpar;2022&rpar; HDRip Original [Telugu + Tamil + Malayalam] Full Movie](https://www.1tamilmv.click/index.php?/forums/topic/165793-vaashi-2022-hdrip-original-telugu-tamil-malayalam-full-movie/&do=findComment&comment=331170)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
