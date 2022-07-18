@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [8 Telugu &lpar;Fan Dub&rpar; Full Movie Watch Now in HD For Free](https://www.1tamilmv.click/index.php?/forums/topic/165817-8-telugu-fan-dub-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=331200)
-- [Dhoom.2004.1080p.BluRay.REMUX.AVC.DTS-HD.MA.5.1 [MEGAZ]](https://www.1tamilmv.click/index.php?/forums/topic/139818-dhoom20041080pblurayremuxavcdts-hdma51-megaz/&do=findComment&comment=331199)
-- [Thor: Love and Thunder &lpar;2022&rpar; [Tamil+Telugu] New HDTC-Rip - 720p - x264 - HQ Clean Audio - 900MB &amp; 400MB {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.click/index.php?/forums/topic/165816-thor-love-and-thunder-2022-tamiltelugu-new-hdtc-rip-720p-x264-hq-clean-audio-900mb-400mb-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=331197)
-- [Sammathame &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.5GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165596-sammathame-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-35gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331196)
-- [Kaaka Kadha &lpar;From &quot;Think Indie&quot;&rpar; - Vaisagh - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 39 MB | 20 MB | 8 MB | 3 MB](https://www.1tamilmv.click/index.php?/forums/topic/165791-kaaka-kadha-from-think-indie-vaisagh-flac-24bit16bit-mp3-320kbps128kbps-39-mb-20-mb-8-mb-3-mb/&do=findComment&comment=331195)
+- [Tamilrockerz | Official Trailer | Tamil | Arivazhagan | Arun Vijay](https://www.1tamilmv.click/index.php?/forums/topic/165698-tamilrockerz-official-trailer-tamil-arivazhagan-arun-vijay/&do=findComment&comment=331206)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=331205)
+- [Fast and Furious Ennealogy &lpar;2001 - 2019&rpar; New Blu-Ray&#39;s- 720p - [Tamil + Telugu + Hindi + Eng] - 12GB | x264 - 450MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/129469-fast-and-furious-ennealogy-2001-2019-new-blu-rays-720p-tamil-telugu-hindi-eng-12gb-x264-450mb-esub/&do=findComment&comment=331204)
+- [The Boys &lpar;2018 - 2020&rpar; S01 &amp; S02 EP &lpar;01-08&rpar; HD - [1080p - AVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tam + Tel + Hin + Eng&rpar; - 70GB | 720p - 3.6GB | x264 - 1.9GB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/105298-the-boys-2018-2020-s01-s02-ep-01-08-hd-1080p-avc-untouched-dd51-640kbps-tam-tel-hin-eng-70gb-720p-36gb-x264-19gb-esub/&do=findComment&comment=331203)
+- [Crank Duology &lpar;2006 - 2009&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu &lpar;1&rpar; + Hindi + Eng] - 4GB - 1.7GB &amp; 400MB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165819-crank-duology-2006-2009-bluray-1080p-720p-x264-dd51-640kbps-tamil-telugu-1-hindi-eng-4gb-17gb-400mb-esub/&do=findComment&comment=331202)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
