@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chase &lpar;2022&rpar; Kannada PreDVD - [720p - x264 - 1.4GB | x264 - 400MB]](https://www.1tamilmv.click/index.php?/forums/topic/165908-chase-2022-kannada-predvd-720p-x264-14gb-x264-400mb/&do=findComment&comment=331352)
+- [Karmanye Vadhikaraste &lpar;2022&rpar; Kannada PreDVD - [720p - x264 - 900MB | x264 - 400MB]](https://www.1tamilmv.click/index.php?/forums/topic/165907-karmanye-vadhikaraste-2022-kannada-predvd-720p-x264-900mb-x264-400mb/&do=findComment&comment=331351)
+- [Aparichitudu &lpar;2005&rpar; Telugu JC TRUE WEBDL - [1080p-10GB-5GB-2GB / 720p-1.6GB / x264 - 700MB-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/163997-aparichitudu-2005-telugu-jc-true-webdl-1080p-10gb-5gb-2gb-720p-16gb-x264-700mb-400mb-avc-aac-gdrivelinks/&do=findComment&comment=331348)
+- [Infinite &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.1GB - 3.5GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165904-infinite-2021-bluray-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-61gb-35gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=331347)
 - [Mannava &lpar;1997&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB - GDRIVE](https://www.1tamilmv.click/index.php?/forums/topic/165902-mannava-1997tamil480phdtvx264aac20-22gb-gdrive/&do=findComment&comment=331345)
-- [Muthal Kadhal [Modalasala] &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.4GB - 1.4GB &amp; | x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.click/index.php?/forums/topic/165901-muthal-kadhal-modalasala-2022-tamil-web-dl-1080p-720p-x264-tamil-original-audio-kannada-24gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=331344)
-- [GOD-SE &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 5.4GB - 3.7GB - 2.6GB - 1.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165725-god-se-2022-telugu-true-web-dl-1080p-720p-avc-hevc-54gb-37gb-26gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331343)
-- [Amma Donga &lpar;1995&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-5.5GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/165887-amma-donga-1995-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-55gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=331342)
-- [Crank Duology &lpar;2006 - 2009&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu &lpar;1&rpar; + Hindi + Eng] - 4GB - 1.7GB &amp; 400MB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165819-crank-duology-2006-2009-bluray-1080p-720p-x264-dd51-640kbps-tamil-telugu-1-hindi-eng-4gb-17gb-400mb-esub/&do=findComment&comment=331341)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
