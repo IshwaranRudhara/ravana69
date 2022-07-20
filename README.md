@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Words Bubble Up Like Soda Pop &lpar;2021&rpar; NF - WEB-DL - 1080p [English + Japanese] DDP5.1 &lpar;640Kbps&rpar; - H.264 - 1.5GB - MSub](https://www.1tamilmv.click/index.php?/forums/topic/165976-words-bubble-up-like-soda-pop-2021-nf-web-dl-1080p-english-japanese-ddp51-640kbps-h264-15gb-msub/&do=findComment&comment=331451)
-- [[G-DRIVE] maamanithan 2022 tamil movie 2160p 4k | 1080p | 720p 480p hdrip esub](https://www.1tamilmv.click/index.php?/forums/topic/165975-g-drive-maamanithan-2022-tamil-movie-2160p-4k-1080p-720p-480p-hdrip-esub/&do=findComment&comment=331450)
-- [A Whisker Away &lpar;2020&rpar; NF - WEB-DL - 1080p [English + Japanese] DDP5.1 &lpar;640Kbps&rpar; - H.264 - 1.9GB - MSub](https://www.1tamilmv.click/index.php?/forums/topic/165974-a-whisker-away-2020-nf-web-dl-1080p-english-japanese-ddp51-640kbps-h264-19gb-msub/&do=findComment&comment=331449)
-- [A Silent Voice &lpar;2016&rpar; NF - WEB-DL - 1080p [English + Japanese] DDP5.1 &lpar;640Kbps&rpar; - H.264 - 2GB - MSub](https://www.1tamilmv.click/index.php?/forums/topic/165973-a-silent-voice-2016-nf-web-dl-1080p-english-japanese-ddp51-640kbps-h264-2gb-msub/&do=findComment&comment=331448)
-- [Jurassic World Dominion &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8.6GB - 4.5GB &amp; 1.6GB | x264 - &lpar;Tam + Tel&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165960-jurassic-world-dominion-2022-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-86gb-45gb-16gb-x264-tam-tel-700mb-450mb-250mb-esub/&do=findComment&comment=331447)
+- [Padmavathi &lpar;2022&rpar; Kannada CAM - [720p - x264 - 1.4GB | x264 - 400MB]](https://www.1tamilmv.click/index.php?/forums/topic/165981-padmavathi-2022-kannada-cam-720p-x264-14gb-x264-400mb/&do=findComment&comment=331458)
+- [Benki &lpar;2022&rpar; Kannada CAM - [720p - x264 - 1.4GB | x264 - 400MB]](https://www.1tamilmv.click/index.php?/forums/topic/165980-benki-2022-kannada-cam-720p-x264-14gb-x264-400mb/&do=findComment&comment=331457)
+- [[G-DRIVE] the edge of seventeen 2016 hindi org dual audio 480p | 720p | 1080P bluray esub](https://www.1tamilmv.click/index.php?/forums/topic/165979-g-drive-the-edge-of-seventeen-2016-hindi-org-dual-audio-480p-720p-1080p-bluray-esub/&do=findComment&comment=331456)
+- [[G-DRIVE] dropa 2019 hindi org dual audio 480p | 720p hdrip esub](https://www.1tamilmv.click/index.php?/forums/topic/165978-g-drive-dropa-2019-hindi-org-dual-audio-480p-720p-hdrip-esub/&do=findComment&comment=331455)
+- [Indian Predator: The Butcher of Delhi &lpar;2022&rpar; S01 EP&lpar;01-03&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 1.8GB &amp; 600MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165941-indian-predator-the-butcher-of-delhi-2022-s01-ep01-03-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-18gb-600mb-esub/&do=findComment&comment=331454)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
