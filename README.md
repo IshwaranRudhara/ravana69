@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [F3: Fun and Frustration &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/166053-f3-fun-and-frustration-2022-telugu-true-web-dl-1080p-720p-hevc-avc-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331595)
 - [MUDHALVAN 1999 - REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.click/index.php?/forums/topic/166061-mudhalvan-1999-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=331594)
 - [[Gdrive Links] Jugjugg Jeeyo &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [400MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/166060-gdrive-links-jugjugg-jeeyo-2022-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-400mb-esub/&do=findComment&comment=331593)
 - [[Gdrive Links] F3: Fun and Frustration &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - Tamil + Telugu + Kannada&rpar; - 3.6GB - 1.4GB &amp; 700MB]](https://www.1tamilmv.click/index.php?/forums/topic/166059-gdrive-links-f3-fun-and-frustration-2022-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-36gb-14gb-700mb/&do=findComment&comment=331592)
 - [LIGER TRAILER &lpar;Hindi&rpar; | Vijay Deverakonda | Puri Jagannadh | Ananya Panday | Karan Johar | 25th Aug](https://www.1tamilmv.click/index.php?/forums/topic/166058-liger-trailer-hindi-vijay-deverakonda-puri-jagannadh-ananya-panday-karan-johar-25th-aug/&do=findComment&comment=331591)
-- [F3: Fun and Frustration &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/166053-f3-fun-and-frustration-2022-telugu-true-web-dl-1080p-720p-hevc-avc-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331589)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
