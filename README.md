@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [WandaVision S01 Complete DSNP [WEB-DL|WEBRip] Esubs x264 - 1080p | 720p - 17.06 GB | 2.60 GB](https://www.1tamilmv.click/index.php?/forums/topic/166040-wandavision-s01-complete-dsnp-web-dlwebrip-esubs-x264-1080p-720p-1706-gb-260-gb/&do=findComment&comment=331567)
 - [Jurassic World Dominion &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8.6GB - 4.5GB &amp; 1.6GB | x264 - &lpar;Tam + Tel&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165960-jurassic-world-dominion-2022-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-86gb-45gb-16gb-x264-tam-tel-700mb-450mb-250mb-esub/&do=findComment&comment=331566)
 - [Kaduva - Paalvarnna Kuthiramel - Video Song - 1080P - DD5.1 Upmixed - Mediafire](https://www.1tamilmv.click/index.php?/forums/topic/166039-kaduva-paalvarnna-kuthiramel-video-song-1080p-dd51-upmixed-mediafire/&do=findComment&comment=331565)
 - [Malayankunju - Mannum Niranje Song - A.R.R - 1080P &amp; 4K - DD5.1 Upmixed - Mediafire](https://www.1tamilmv.click/index.php?/forums/topic/166038-malayankunju-mannum-niranje-song-arr-1080p-4k-dd51-upmixed-mediafire/&do=findComment&comment=331564)
 - [Jurassic World Dominion &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8.6GB - 4.5GB &amp; 1.6GB | x264 - &lpar;Tam + Tel&rpar; - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165960-jurassic-world-dominion-2022-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-86gb-45gb-16gb-x264-tam-tel-700mb-450mb-250mb-esub/&do=findComment&comment=331563)
-- [Mahaveeryar &lpar;2022&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.click/index.php?/forums/topic/166023-mahaveeryar-2022-malayalam-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=331562)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
