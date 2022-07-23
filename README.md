@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[144FPS|120FPS|60FPS|HDR] - The Gray Man &lpar;2022&rpar; NF WEBRip Multi DDP5.1 Atmos H 265 - 1080p [144FPS|120FPS|60FPS|HDR] - 720p [10bit] - 14.6 GB | 11 GB | 9 GB | 3.2 GB | 1.8 GB | 1 GB](https://www.1tamilmv.click/index.php?/forums/topic/166171-144fps120fps60fpshdr-the-gray-man-2022-nf-webrip-multi-ddp51-atmos-h-265-1080p-144fps120fps60fpshdr-720p-10bit-146-gb-11-gb-9-gb-32-gb-18-gb-1-gb/&do=findComment&comment=331767)
 - [Soorarai Pottru &lpar;2020&rpar; Tamil AMZN WEB-DL DDP5.1 Esubs - 2160p [UHD] | 1080p - 8.3 GB | 7.9 GB + Soundtrack Rips](https://www.1tamilmv.click/index.php?/forums/topic/166170-soorarai-pottru-2020-tamil-amzn-web-dl-ddp51-esubs-2160p-uhd-1080p-83-gb-79-gb-soundtrack-rips/&do=findComment&comment=331766)
 - [Vaashi 2022 Malayalam 720p /1080p 10bit WEB-DL 2CH x265 HEVC](https://www.1tamilmv.click/index.php?/forums/topic/166169-vaashi-2022-malayalam-720p-1080p-10bit-web-dl-2ch-x265-hevc/&do=findComment&comment=331765)
 - [The Gray Man 2022 WEBRip 720p / 1080p 10bit 6CH x265](https://www.1tamilmv.click/index.php?/forums/topic/166168-the-gray-man-2022-webrip-720p-1080p-10bit-6ch-x265/&do=findComment&comment=331764)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=331763)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=331762)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
