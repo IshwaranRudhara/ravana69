@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Soorarai Pottru &lpar;2020&rpar; Tamil AMZN WEB-DL DDP5.1 Esubs - 2160p [UHD] | 1080p - 8.3 GB | 7.9 GB + Soundtrack Rips](https://www.1tamilmv.click/index.php?/forums/topic/166170-soorarai-pottru-2020-tamil-amzn-web-dl-ddp51-esubs-2160p-uhd-1080p-83-gb-79-gb-soundtrack-rips/&do=findComment&comment=331766)
+- [Vaashi 2022 Malayalam 720p /1080p 10bit WEB-DL 2CH x265 HEVC](https://www.1tamilmv.click/index.php?/forums/topic/166169-vaashi-2022-malayalam-720p-1080p-10bit-web-dl-2ch-x265-hevc/&do=findComment&comment=331765)
 - [The Gray Man 2022 WEBRip 720p / 1080p 10bit 6CH x265](https://www.1tamilmv.click/index.php?/forums/topic/166168-the-gray-man-2022-webrip-720p-1080p-10bit-6ch-x265/&do=findComment&comment=331764)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=331763)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=331762)
-- [Anything&#39;s Possible &lpar;2022&rpar; &lpar;Blu-Ray + TRUE Original Audios&rpar; - [1080p &amp; 720p - &lpar;Telugu + Tamil + Hindi + Eng&rpar; - 1.7GB - 1.5GB &amp; 950MB - 700MB | x264 - &lpar;Tel + Tam&rpar; - 500MB - 450MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/166167-anythings-possible-2022-blu-ray-true-original-audios-1080p-720p-telugu-tamil-hindi-eng-17gb-15gb-950mb-700mb-x264-tel-tam-500mb-450mb-esub/&do=findComment&comment=331761)
-- [Agent Anand Santosh S01E01 Its Meghana sir 720p AHA WEB-DL x264 [Telugu]](https://www.1tamilmv.click/index.php?/forums/topic/166166-agent-anand-santosh-s01e01-its-meghana-sir-720p-aha-web-dl-x264-telugu/&do=findComment&comment=331760)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
