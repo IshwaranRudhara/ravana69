@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Mr.Bean&#39;s Holiday &lpar;2007&rpar; 1080p BluRay Dual Audio [Hindi + English] x264 - 1.5GB](https://www.1tamilmv.click/index.php?/forums/topic/166250-mrbeans-holiday-2007-1080p-bluray-dual-audio-hindi-english-x264-15gb/&do=findComment&comment=331874)
-- [Satham Podathey &lpar;2007&rpar; [1080p - AMZN WEB-DL - Tamil -DDP2.0] - x264 - 8.8GB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/166249-satham-podathey-2007-1080p-amzn-web-dl-tamil-ddp20-x264-88gb-esub/&do=findComment&comment=331873)
-- [Guardians Of The Galaxy Duology &lpar;2014-2017&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs    WATCH ONLINE OR DOWNLOAD](https://www.1tamilmv.click/index.php?/forums/topic/166248-guardians-of-the-galaxy-duology-2014-2017-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs-watch-online-or-download/&do=findComment&comment=331872)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.click/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=331871)
-- [Khatarnak &lpar;2006&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166241-khatarnak-2006-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331870)
+- [Black Panther: Wakanda Forever &lpar;2022&rpar; | Official Teaser - [Tamil + Telugu + Hindi + Malayalam + Kannada + English] | Marvel Studios | November 11](https://www.1tamilmv.click/index.php?/forums/topic/166220-black-panther-wakanda-forever-2022-official-teaser-tamil-telugu-hindi-malayalam-kannada-english-marvel-studios-november-11/&do=findComment&comment=331883)
+- [Paws Of Fury The Legend Of Hank 2022 WebRip x265 HEVC 800MB-1.4GB CvmesX Exclusive](https://www.1tamilmv.click/index.php?/forums/topic/166257-paws-of-fury-the-legend-of-hank-2022-webrip-x265-hevc-800mb-14gb-cvmesx-exclusive/&do=findComment&comment=331882)
+- [Nuvvostanante Nenoddantana &lpar;2005&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS 5.1 &lpar;755Kbps&rpar; - DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166256-nuvvostanante-nenoddantana-2005-telugu-music-video-album-1080p-web-hd-untouched-avc-dts-51-755kbps-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331881)
+- [The Falcon and The Winter Soldier S01 Complete DSNP WEB-DL Multi Esubs x264 - 1080p | 720p - 7.38 GB | 2.9 GB + Original Soundtrack Rips](https://www.1tamilmv.click/index.php?/forums/topic/166255-the-falcon-and-the-winter-soldier-s01-complete-dsnp-web-dl-multi-esubs-x264-1080p-720p-738-gb-29-gb-original-soundtrack-rips/&do=findComment&comment=331880)
+- [Yaavarum Nalam &lpar;2009&rpar; Tamil [1080p BluRay - DTS 5.1 &lpar;1509Kbps&rpar; - DD 5.1 &lpar;640Kbps&rpar; - x264 - 10GB - 5GB - Esub]](https://www.1tamilmv.click/index.php?/forums/topic/166254-yaavarum-nalam-2009-tamil-1080p-bluray-dts-51-1509kbps-dd-51-640kbps-x264-10gb-5gb-esub/&do=findComment&comment=331879)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
