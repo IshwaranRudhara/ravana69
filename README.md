@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Khatarnak &lpar;2006&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166241-khatarnak-2006-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331859)
-- [John Wick Trilogy &lpar;2014-2019&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.click/index.php?/forums/topic/166240-john-wick-trilogy-2014-2019-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=331858)
-- [DORAEMON : NOBITA’S SECRET GADGET MUSEUM &lpar;2013&rpar; – TAMIL DUBBED – HD1080p – 1.5GB](https://www.1tamilmv.click/index.php?/forums/topic/166239-doraemon-nobita%E2%80%99s-secret-gadget-museum-2013-%E2%80%93-tamil-dubbed-%E2%80%93-hd1080p-%E2%80%93-15gb/&do=findComment&comment=331857)
-- [Titanic &lpar;1997&rpar; - BluRay - Original Audios - [Telugu + Tamil + Hindi + English] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/166238-titanic-1997-bluray-original-audios-telugu-tamil-hindi-english-esub%C2%A0/&do=findComment&comment=331856)
-- [18+ Foot.Fairy.2020.Hindi.1080p.NF.WEB-DL.DDP5.1.x264 - UNTOUCHED - GRIVE](https://www.1tamilmv.click/index.php?/forums/topic/166237-18-footfairy2020hindi1080pnfweb-dlddp51x264-untouched-grive/&do=findComment&comment=331855)
+- [Mudhal Naayagan &lpar;From &quot;Don&quot;&rpar; - Anirudh Ravichander - FLAC [24bit &lpar;96kHz|48kHz&rpar; | 16bit] | MP3 [320kbps] - 49 MB | 29 MB | 15 MB | 5 MB](https://www.1tamilmv.click/index.php?/forums/topic/166221-mudhal-naayagan-from-don-anirudh-ravichander-flac-24bit-96khz48khz-16bit-mp3-320kbps-49-mb-29-mb-15-mb-5-mb/&do=findComment&comment=331865)
+- [Maska &lpar;2009&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS 5.1 &lpar;755Kbps&rpar; - DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166243-maska-2009-telugu-music-video-album-1080p-web-hd-untouched-avc-dts-51-755kbps-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331864)
+- [Khatarnak &lpar;2006&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166241-khatarnak-2006-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331863)
+- [SHER BAGGA &lpar;2022&rpar; NEW PUNJABI FULL MOVIE HD ESUBS](https://www.1tamilmv.click/index.php?/forums/topic/166242-sher-bagga-2022-new-punjabi-full-movie-hd-esubs/&do=findComment&comment=331862)
+- [SHER BAGGA &lpar;2022&rpar; NEW PUNJABI FULL MOVIE HD ESUBS](https://www.1tamilmv.click/index.php?/forums/topic/166242-sher-bagga-2022-new-punjabi-full-movie-hd-esubs/&do=findComment&comment=331861)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
