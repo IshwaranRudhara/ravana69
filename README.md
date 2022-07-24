@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Marvels all movies multiple languages](https://www.1tamilmv.click/index.php?/forums/topic/166261-marvels-all-movies-multiple-languages/&do=findComment&comment=331887)
+- [BB JODIGAL SEASON 2 EPISODE 11 &lpar;26.7.2022&rpar; 📥 FAST DOWNLOAD LINKS 📥](https://www.1tamilmv.click/index.php?/forums/topic/166260-bb-jodigal-season-2-episode-11-2672022-%F0%9F%93%A5-fast-download-links-%F0%9F%93%A5/&do=findComment&comment=331886)
+- [Thank you hd print](https://www.1tamilmv.click/index.php?/forums/topic/166259-thank-you-hd-print/&do=findComment&comment=331885)
+- [Idiot &lpar;2002&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166258-idiot-2002-telugu-music-video-album-1080p-web-hd-untouched-avc-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=331884)
 - [Black Panther: Wakanda Forever &lpar;2022&rpar; | Official Teaser - [Tamil + Telugu + Hindi + Malayalam + Kannada + English] | Marvel Studios | November 11](https://www.1tamilmv.click/index.php?/forums/topic/166220-black-panther-wakanda-forever-2022-official-teaser-tamil-telugu-hindi-malayalam-kannada-english-marvel-studios-november-11/&do=findComment&comment=331883)
-- [Paws Of Fury The Legend Of Hank 2022 WebRip x265 HEVC 800MB-1.4GB CvmesX Exclusive](https://www.1tamilmv.click/index.php?/forums/topic/166257-paws-of-fury-the-legend-of-hank-2022-webrip-x265-hevc-800mb-14gb-cvmesx-exclusive/&do=findComment&comment=331882)
-- [Nuvvostanante Nenoddantana &lpar;2005&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS 5.1 &lpar;755Kbps&rpar; - DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166256-nuvvostanante-nenoddantana-2005-telugu-music-video-album-1080p-web-hd-untouched-avc-dts-51-755kbps-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331881)
-- [The Falcon and The Winter Soldier S01 Complete DSNP WEB-DL Multi Esubs x264 - 1080p | 720p - 7.38 GB | 2.9 GB + Original Soundtrack Rips](https://www.1tamilmv.click/index.php?/forums/topic/166255-the-falcon-and-the-winter-soldier-s01-complete-dsnp-web-dl-multi-esubs-x264-1080p-720p-738-gb-29-gb-original-soundtrack-rips/&do=findComment&comment=331880)
-- [Yaavarum Nalam &lpar;2009&rpar; Tamil [1080p BluRay - DTS 5.1 &lpar;1509Kbps&rpar; - DD 5.1 &lpar;640Kbps&rpar; - x264 - 10GB - 5GB - Esub]](https://www.1tamilmv.click/index.php?/forums/topic/166254-yaavarum-nalam-2009-tamil-1080p-bluray-dts-51-1509kbps-dd-51-640kbps-x264-10gb-5gb-esub/&do=findComment&comment=331879)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
