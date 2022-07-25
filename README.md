@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Spawn &lpar;Director&#39;s Cut&rpar; 1997 1080p Blu-Ray DD5.1 Tamil +AAC 2.0 Hindi +DD5.1 Russian +DD5.1 English Msubs 12GB First on NET [G-Drive]](https://www.1tamilmv.click/index.php?/forums/topic/166281-spawn-directors-cut-1997-1080p-blu-ray-dd51-tamil-aac-20-hindi-dd51-russian-dd51-english-msubs-12gb-first-on-net-g-drive/&do=findComment&comment=331932)
+- [Ayan &lpar;2009&rpar; Complete - Harris Jayaraj Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 207 MB | 69 MB | 28 MB](https://www.1tamilmv.click/index.php?/forums/topic/165928-ayan-2009-complete-harris-jayaraj-musical-flac-16bit-mp3-320kbps128kbps-207-mb-69-mb-28-mb/&do=findComment&comment=331931)
 - [Nirmal Pathak Ki Ghar Wapsi &lpar;2022&rpar; S01 Merged All Episodes In One File TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tam + Tel + Mal + Hin + Kan] - 3.8GB &amp; 1.8GB] - [x264 - 600MB] - ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/166280-nirmal-pathak-ki-ghar-wapsi-2022-s01-merged-all-episodes-in-one-file-true-web-dl-1080p-720p-avc-tam-tel-mal-hin-kan-38gb-18gb-x264-600mb-esub-google-drive/&do=findComment&comment=331930)
 - [Koogle Kuttappa &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/163455-koogle-kuttappa-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331929)
 - [Yaavarum Nalam &lpar;2009&rpar; Tamil [1080p BluRay - DTS 5.1 &lpar;1509Kbps&rpar; - DD 5.1 &lpar;640Kbps&rpar; - x264 - 10GB - 5GB - Esub]](https://www.1tamilmv.click/index.php?/forums/topic/166254-yaavarum-nalam-2009-tamil-1080p-bluray-dts-51-1509kbps-dd-51-640kbps-x264-10gb-5gb-esub/&do=findComment&comment=331928)
-- [The Expendables Trilogy &lpar;2010 - 2014&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 9.6GB - 3.7GB &amp; 450MB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165476-the-expendables-trilogy-2010-2014-bluray-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-96gb-37gb-450mb-esub/&do=findComment&comment=331927)
-- [Love Failure &lpar;2012&rpar; Telugu JC TRUE HDRips - [1080p / 720p - 5GB - 2.5GB - 1.4GB] - AVC - AAC - [x264 / 700MB - 400MB] - [GDLinks]](https://www.1tamilmv.click/index.php?/forums/topic/135038-love-failure-2012-telugu-jc-true-hdrips-1080p-720p-5gb-25gb-14gb-avc-aac-x264-700mb-400mb-gdlinks/&do=findComment&comment=331926)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
