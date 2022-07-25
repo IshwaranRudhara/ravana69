@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Request any song album - MP3,WAC,FLAC all format available for download.](https://www.1tamilmv.click/index.php?/forums/topic/166286-request-any-song-album-mp3wacflac-all-format-available-for-download/&do=findComment&comment=331944)
-- [Circus Sathi Pandu &lpar;1997&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-5GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/166288-circus-sathi-pandu-1997-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-5gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=331943)
-- [Subash &lpar;1996&rpar;.Tamil.480p.HDTV.264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.click/index.php?/forums/topic/166287-subash-1996tamil480phdtv264aac20-2gb-gdrive/&do=findComment&comment=331942)
-- [Varsham &lpar;2004&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166246-varsham-2004-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331941)
-- [Request any song album - MP3,WAC,FLAC all format available for download.](https://www.1tamilmv.click/index.php?/forums/topic/166286-request-any-song-album-mp3wacflac-all-format-available-for-download/&do=findComment&comment=331940)
+- [DOOKUDU &lpar;2010&rpar; &lpar;Complete Music Video Album&rpar; - BLURAY REMUX - AVC - 1080p - H264 - DTS-HDMA - 5.1 - ESUB - 4.2GB](https://www.1tamilmv.click/index.php?/forums/topic/166294-dookudu-2010-complete-music-video-album-bluray-remux-avc-1080p-h264-dts-hdma-51-esub-42gb/&do=findComment&comment=331953)
+- [Rayalaseema Ramanna Chowdary &lpar;2000&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-7GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/166293-rayalaseema-ramanna-chowdary-2000-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-7gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=331952)
+- [Idiot &lpar;2002&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166258-idiot-2002-telugu-music-video-album-1080p-web-hd-untouched-avc-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=331951)
+- [Paisa &lpar;2014&rpar; Telugu JC TRUE WEB-DL - [1080p-7.5GB-4GB / 720p-1.4GB / 480p-800MB / 360p-650MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.click/index.php?/forums/topic/166292-paisa-2014-telugu-jc-true-web-dl-1080p-75gb-4gb-720p-14gb-480p-800mb-360p-650mb-240p-450mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=331950)
+- [Basha - Naan Autokaran &lpar;Remastered Video Song&rpar; - DD5.1 640Kbps + DTSHDMA 5.1 &lpar;Lossless FLAC Upmix&rpar; - 778Mb - Mediafire](https://www.1tamilmv.click/index.php?/forums/topic/166291-basha-naan-autokaran-remastered-video-song-dd51-640kbps-dtshdma-51-lossless-flac-upmix-778mb-mediafire/&do=findComment&comment=331949)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
