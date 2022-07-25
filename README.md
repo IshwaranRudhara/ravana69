@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nirmal Pathak Ki Ghar Wapsi &lpar;2022&rpar; S01 Merged All Episodes In One File TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tam + Tel + Mal + Hin + Kan] - 3.8GB &amp; 1.8GB] - [x264 - 600MB] - ESub [Google Drive]](https://www.1tamilmv.click/index.php?/forums/topic/166280-nirmal-pathak-ki-ghar-wapsi-2022-s01-merged-all-episodes-in-one-file-true-web-dl-1080p-720p-avc-tam-tel-mal-hin-kan-38gb-18gb-x264-600mb-esub-google-drive/&do=findComment&comment=331930)
+- [Koogle Kuttappa &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.click/index.php?/forums/topic/163455-koogle-kuttappa-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=331929)
 - [Yaavarum Nalam &lpar;2009&rpar; Tamil [1080p BluRay - DTS 5.1 &lpar;1509Kbps&rpar; - DD 5.1 &lpar;640Kbps&rpar; - x264 - 10GB - 5GB - Esub]](https://www.1tamilmv.click/index.php?/forums/topic/166254-yaavarum-nalam-2009-tamil-1080p-bluray-dts-51-1509kbps-dd-51-640kbps-x264-10gb-5gb-esub/&do=findComment&comment=331928)
 - [The Expendables Trilogy &lpar;2010 - 2014&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 9.6GB - 3.7GB &amp; 450MB - ESub](https://www.1tamilmv.click/index.php?/forums/topic/165476-the-expendables-trilogy-2010-2014-bluray-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-96gb-37gb-450mb-esub/&do=findComment&comment=331927)
 - [Love Failure &lpar;2012&rpar; Telugu JC TRUE HDRips - [1080p / 720p - 5GB - 2.5GB - 1.4GB] - AVC - AAC - [x264 / 700MB - 400MB] - [GDLinks]](https://www.1tamilmv.click/index.php?/forums/topic/135038-love-failure-2012-telugu-jc-true-hdrips-1080p-720p-5gb-25gb-14gb-avc-aac-x264-700mb-400mb-gdlinks/&do=findComment&comment=331926)
-- [Nuvvostanante Nenoddantana &lpar;2005&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS 5.1 &lpar;755Kbps&rpar; - DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.click/index.php?/forums/topic/166256-nuvvostanante-nenoddantana-2005-telugu-music-video-album-1080p-web-hd-untouched-avc-dts-51-755kbps-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331925)
-- [Cook with Comali Season 3 Grand Final Download Link](https://www.1tamilmv.click/index.php?/forums/topic/166279-cook-with-comali-season-3-grand-final-download-link/&do=findComment&comment=331924)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
