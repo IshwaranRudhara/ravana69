@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Doraemon: Nobita&#39;s Chronicle of the Moon Exploration 2019 1080p Tamil dubbed &lpar; Fan dub &rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166311-doraemon-nobitas-chronicle-of-the-moon-exploration-2019-1080p-tamil-dubbed-fan-dub/&do=findComment&comment=331976)
-- [Beowulf 1999 DD5.1 Tamil +DD5.1 Hindi +DD5.1 Russian +DD5.1 English 1080p WEB-DL Msubs 10GB First On NET [G-Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166310-beowulf-1999-dd51-tamil-dd51-hindi-dd51-russian-dd51-english-1080p-web-dl-msubs-10gb-first-on-net-g-drive/&do=findComment&comment=331975)
-- [DORAEMON: STAND BY ME &lpar;2014&rpar; – TAMIL DUBBED – HD1080p](https://www.1tamilmv.pics/index.php?/forums/topic/166309-doraemon-stand-by-me-2014-%E2%80%93-tamil-dubbed-%E2%80%93-hd1080p/&do=findComment&comment=331974)
-- [Doraemon: Nobita&#39;s Treasure Island 2018 fan dub 480p](https://www.1tamilmv.pics/index.php?/forums/topic/166308-doraemon-nobitas-treasure-island-2018-fan-dub-480p/&do=findComment&comment=331973)
-- [Oor Mariyadhai &lpar;1992&rpar; - Tamil - Lahari - LRCD 9623 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Deva Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166307-oor-mariyadhai-1992-tamil-lahari-lrcd-9623-true-mp3-441khz-16bit-320kbps-deva-musical/&do=findComment&comment=331972)
+- [xXx: State of the Union &lpar;2005&rpar; OpenMatte - 1080p - [Tamil + Telugu] DD5.1 &lpar;384Kbps&rpar; + [English + Hindi] - DD5.1 &lpar;448Kbps&rpar; - H.264 - 10GB - ESub &amp; Bluray - 5GB](https://www.1tamilmv.pics/index.php?/forums/topic/166319-xxx-state-of-the-union-2005-openmatte-1080p-tamil-telugu-dd51-384kbps-english-hindi-dd51-448kbps-h264-10gb-esub-bluray-5gb/&do=findComment&comment=331987)
+- [The Mummy Quadrilogy &lpar;1999-2017&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs    WATCH ONLINE OR DOWNLOAD](https://www.1tamilmv.pics/index.php?/forums/topic/166318-the-mummy-quadrilogy-1999-2017-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs-watch-online-or-download/&do=findComment&comment=331986)
+- [Betaal &lpar;2020&rpar; {Season 01} NF - WEB-DL - 1080p [Tamil + Telugu] DDP5.1 &lpar;640Kbps&rpar; - H.264 - 5.6GB - MSub](https://www.1tamilmv.pics/index.php?/forums/topic/166317-betaal-2020-season-01-nf-web-dl-1080p-tamil-telugu-ddp51-640kbps-h264-56gb-msub/&do=findComment&comment=331985)
+- [Iron Man Trilogy &lpar;2008-2013&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166316-iron-man-trilogy-2008-2013-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=331984)
+- [Nuvvostanante Nenoddantana &lpar;2005&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS 5.1 &lpar;755Kbps&rpar; - DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166256-nuvvostanante-nenoddantana-2005-telugu-music-video-album-1080p-web-hd-untouched-avc-dts-51-755kbps-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=331983)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
