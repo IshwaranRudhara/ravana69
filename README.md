@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Simha &lpar;2010&rpar; HDRip [1080p &amp; 720p ]  Telugu &lpar;DD5.1&rpar;- AVC  - UNTOUCHED - HEVC&amp; X264  - AC3/AAC - [11GB - 9GB - 4GB - 1.9GB - 1GB - 570MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166347-simha-2010-hdrip-1080p-720p-telugu-dd51-avc-untouched-hevc-x264-ac3aac-11gb-9gb-4gb-19gb-1gb-570mb-esub/&do=findComment&comment=332033)
 - [Rocketry: The Nambi Effect &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166327-rocketry-the-nambi-effect-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-3gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332032)
 - [Rocketry: The Nambi Effect &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC  - 3GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166330-rocketry-the-nambi-effect-2022-telugu-true-web-dl-1080p-720p-avc-hevc-3gb-17gb-900mb-x264-700mb-400mb-200mb-esub/&do=findComment&comment=332031)
 - [No Woman No Cry &lpar;from &quot;Black Panther: Wakanda Forever Prologue&quot;&rpar; - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 32 MB | 18 MB | 8 MB | 3 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166346-no-woman-no-cry-from-black-panther-wakanda-forever-prologue-flac-24bit16bit-mp3-320kbps128kbps-32-mb-18-mb-8-mb-3-mb/&do=findComment&comment=332030)
 - [Rocketry: The Nambi Effect &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 10GB - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166324-rocketry-the-nambi-effect-2022-tamil-true-web-dl-1080p-720p-avc-hevc-10gb-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332029)
-- [Rocketry: The Nambi Effect &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu + Kannada + Malayalam&rpar; - 12GB - 8GB - 6.8GB - 5.6GB - 3.2GB - 2.8GB - 1.8GB - 1.4GB &amp; 900MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166325-rocketry-the-nambi-effect-2022-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-malayalam-12gb-8gb-68gb-56gb-32gb-28gb-18gb-14gb-900mb-esub/&do=findComment&comment=332028)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
