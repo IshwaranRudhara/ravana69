@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ninaivugal &lpar;From &quot;Captain&quot;&rpar; - D Imman, Yuvan Shankar Raja - FLAC [24bit|16bit] | M4A [320kbps|128kbps] - 56.8 MB |32 MB | 11 MB | 4 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166342-ninaivugal-from-captain-d-imman-yuvan-shankar-raja-flac-24bit16bit-m4a-320kbps128kbps-568-mb-32-mb-11-mb-4-mb/&do=findComment&comment=332062)
+- [4K 2160p 60FPS ULTRA PREMIUM QUALITY UHD Songs/OTT Downloads/Clips/UHD Photos @TELEGRAM | UHD HUNTERYT](https://www.1tamilmv.pics/index.php?/forums/topic/166176-4k-2160p-60fps-ultra-premium-quality-uhd-songsott-downloadsclipsuhd-photos-telegram-uhd-hunteryt/&do=findComment&comment=332061)
+- [Takkar &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166362-takkar-2022-kannada-true-web-dl-1080p-720p-avc-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332060)
 - [Circle &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166361-circle-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=332059)
 - [Ayan &lpar;2009&rpar; Complete - Harris Jayaraj Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 207 MB | 69 MB | 28 MB](https://www.1tamilmv.pics/index.php?/forums/topic/165928-ayan-2009-complete-harris-jayaraj-musical-flac-16bit-mp3-320kbps128kbps-207-mb-69-mb-28-mb/&do=findComment&comment=332058)
-- [Rocketry: The Nambi Effect &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC  - 3GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166330-rocketry-the-nambi-effect-2022-telugu-true-web-dl-1080p-720p-avc-hevc-3gb-17gb-900mb-x264-700mb-400mb-200mb-esub/&do=findComment&comment=332057)
-- [Vaishali &lpar;2011&rpar; Telugu SunNxt TRUE WEB-DL - [1080p-5GB / 720p-2.3GB / 360p-650MB] - x264 - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166360-vaishali-2011-telugu-sunnxt-true-web-dl-1080p-5gb-720p-23gb-360p-650mb-x264-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=332056)
-- [Sakthi &lpar;1997&rpar; Tamil JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - x264 - AAC - [GDriveLinks] - Requested](https://www.1tamilmv.pics/index.php?/forums/topic/166359-sakthi-1997-tamil-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-x264-aac-gdrivelinks-requested/&do=findComment&comment=332055)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
