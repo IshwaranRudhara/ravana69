@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rocketry: The Nambi Effect &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 10GB - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166324-rocketry-the-nambi-effect-2022-tamil-true-web-dl-1080p-720p-avc-hevc-10gb-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332043)
 - [Rocketry: The Nambi Effect &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu + Kannada + Malayalam&rpar; - 12GB - 8GB - 6.8GB - 5.6GB - 3.2GB - 2.8GB - 1.8GB - 1.4GB &amp; 900MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166325-rocketry-the-nambi-effect-2022-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-malayalam-12gb-8gb-68gb-56gb-32gb-28gb-18gb-14gb-900mb-esub/&do=findComment&comment=332042)
 - [Ninaivugal &lpar;From &quot;Captain&quot;&rpar; - D Imman, Yuvan Shankar Raja - FLAC [24bit|16bit] | M4A [320kbps|128kbps] - 56.8 MB |32 MB | 11 MB | 4 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166342-ninaivugal-from-captain-d-imman-yuvan-shankar-raja-flac-24bit16bit-m4a-320kbps128kbps-568-mb-32-mb-11-mb-4-mb/&do=findComment&comment=332041)
 - [Rudhra &lpar;1991&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.8GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166352-rudhra-1991tamil480phdtvx264aac20-18gb-gdrive/&do=findComment&comment=332040)
 - [Rocketry: The Nambi Effect &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 1.7GB 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166351-rocketry-the-nambi-effect-2022-tamil-true-web-dl-1080p-720p-avc-hevc-17gb-14gb-x264-700mb-400mb-250mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332039)
-- [xXx &lpar;2002&rpar; 1080p Blu-Ray Remux [Tamil Telugu Hin Eng Rus] Msubs 19GB [G-Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166350-xxx-2002-1080p-blu-ray-remux-tamil-telugu-hin-eng-rus-msubs-19gb-g-drive/&do=findComment&comment=332038)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
