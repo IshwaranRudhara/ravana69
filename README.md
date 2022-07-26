@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rocketry: The Nambi Effect &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC  - 3GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166330-rocketry-the-nambi-effect-2022-telugu-true-web-dl-1080p-720p-avc-hevc-3gb-17gb-900mb-x264-700mb-400mb-200mb-esub/&do=findComment&comment=332057)
 - [Vaishali &lpar;2011&rpar; Telugu SunNxt TRUE WEB-DL - [1080p-5GB / 720p-2.3GB / 360p-650MB] - x264 - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166360-vaishali-2011-telugu-sunnxt-true-web-dl-1080p-5gb-720p-23gb-360p-650mb-x264-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=332056)
 - [Sakthi &lpar;1997&rpar; Tamil JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - x264 - AAC - [GDriveLinks] - Requested](https://www.1tamilmv.pics/index.php?/forums/topic/166359-sakthi-1997-tamil-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-x264-aac-gdrivelinks-requested/&do=findComment&comment=332055)
 - [Maa Annayya Bangaram &lpar;2010&rpar; Telugu SunNxt TRUE WEB-DL - [1080p-5.5GB / 720p-2.7GB / 360p-850MB] - x264 - AAC 2.0 - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166358-maa-annayya-bangaram-2010-telugu-sunnxt-true-web-dl-1080p-55gb-720p-27gb-360p-850mb-x264-aac-20-gdrivelinks/&do=findComment&comment=332054)
 - [Mudhal Naayagan &lpar;From &quot;Don&quot;&rpar; - Anirudh Ravichander - FLAC [24bit &lpar;96kHz|48kHz&rpar; | 16bit] | MP3 [320kbps] - 49 MB | 29 MB | 15 MB | 5 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166221-mudhal-naayagan-from-don-anirudh-ravichander-flac-24bit-96khz48khz-16bit-mp3-320kbps-49-mb-29-mb-15-mb-5-mb/&do=findComment&comment=332053)
-- [Love Failure &lpar;2012&rpar; Telugu JC TRUE HDRips - [1080p / 720p - 5GB - 2.5GB - 1.4GB] - AVC - AAC - [x264 / 700MB - 400MB] - [GDLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/135038-love-failure-2012-telugu-jc-true-hdrips-1080p-720p-5gb-25gb-14gb-avc-aac-x264-700mb-400mb-gdlinks/&do=findComment&comment=332052)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
