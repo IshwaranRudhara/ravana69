@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Rocketry: The Nambi Effect &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 10GB - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166324-rocketry-the-nambi-effect-2022-tamil-true-web-dl-1080p-720p-avc-hevc-10gb-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332014)
-- [Rocketry: The Nambi Effect &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 10GB - 4GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166324-rocketry-the-nambi-effect-2022-tamil-true-web-dl-1080p-720p-avc-hevc-10gb-4gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332013)
-- [18+ Charmsukh - Tauba Tauba](https://www.1tamilmv.pics/index.php?/forums/topic/166334-18-charmsukh-tauba-tauba/&do=findComment&comment=332012)
-- [Break Up Party  &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166333-break-up-party-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=332011)
-- [Rocketry - The Nambi Effect &lpar;2022&rpar; [Tamil + Telugu + Mal + Kan] Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166332-rocketry-the-nambi-effect-2022-tamil-telugu-mal-kan-full-movie-watch-now-hq-for-free/&do=findComment&comment=332010)
+- [Rocketry: The Nambi Effect &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Telugu + Tamil + Malayalam + Kannada&rpar; - 7.6GB - 3.1GB &amp; 1.8GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166340-rocketry-the-nambi-effect-2022-true-web-dl-1080p-720p-avc-telugu-tamil-malayalam-kannada-76gb-31gb-18gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332022)
+- [Ant-Man Duology &lpar;2015-2018&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166339-ant-man-duology-2015-2018-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332021)
+- [Ant-Man Duology &lpar;2015-2018&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166338-ant-man-duology-2015-2018-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332020)
+- [Rocketry: The Nambi Effect &lpar;2022&rpar; AMZN TRUE WEB-DL - [1080p-11.5GB-7.5GB-3GB / 720p-1.3GB-950MB / 480p-600MB] - AVC/HEVC - [Telugu + Tamil + Kannada + Malayalam] - ESub - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166337-rocketry-the-nambi-effect-2022-amzn-true-web-dl-1080p-115gb-75gb-3gb-720p-13gb-950mb-480p-600mb-avchevc-telugu-tamil-kannada-malayalam-esub-gdrivelinks/&do=findComment&comment=332019)
+- [Break Up Party &lpar;2022&rpar; HDRip Malayalam Full Movie](https://www.1tamilmv.pics/index.php?/forums/topic/166336-break-up-party-2022-hdrip-malayalam-full-movie/&do=findComment&comment=332018)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
