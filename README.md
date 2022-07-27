@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [xXx Trilogy &lpar;2002-2017&rpar; BluRay - &lpar;Original Audios&rpar; - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166379-xxx-trilogy-2002-2017-bluray-original-audios-aac-esubs/&do=findComment&comment=332091)
+- [Kshamisi Nimma khatheyalli Hanavilla &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166363-kshamisi-nimma-khatheyalli-hanavilla-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=332090)
+- [Traitor &lpar;2022&rpar; S01 EP &lpar;01-03&rpar; 720p DSNP WEB-DL x264 &lpar;AAC 2.0 - 128Kbps&rpar; [Tel + Tam + Hin + Est] ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166378-traitor-2022-s01-ep-01-03-720p-dsnp-web-dl-x264-aac-20-128kbps-tel-tam-hin-est-esubs/&do=findComment&comment=332089)
+- [Idiot &lpar;2002&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166258-idiot-2002-telugu-music-video-album-1080p-web-hd-untouched-avc-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=332088)
 - [Ghar Waapsi &lpar;2022&rpar; S01 EP&lpar;01-06&rpar; - HQ HDRip &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada&rpar; Download Link](https://www.1tamilmv.pics/index.php?/forums/topic/166377-ghar-waapsi-2022-s01-ep01-06-hq-hdrip-tamil-telugu-hindi-malayalam-kannada-download-link/&do=findComment&comment=332087)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=332086)
-- [PUNNAGAI MANNAN 1986 -SINGALATHU SINNA KUYILE VIDEO SONG HQ HD1080P WITH 5.1 AUDIO](https://www.1tamilmv.pics/index.php?/forums/topic/166376-punnagai-mannan-1986-singalathu-sinna-kuyile-video-song-hq-hd1080p-with-51-audio/&do=findComment&comment=332085)
-- [Villu Pattukaran &lpar;1992&rpar; - Tamil - GreenHives Audio - ACD GHA 9004 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraaja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166375-villu-pattukaran-1992-tamil-greenhives-audio-acd-gha-9004-true-mp3-441khz-16bit-320kbps-ilaiyaraaja-musical/&do=findComment&comment=332084)
-- [Siraichalai &lpar;1996&rpar; - Tamil - GreenHives Audio - ACD GHA 9003 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraaja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166374-siraichalai-1996-tamil-greenhives-audio-acd-gha-9003-true-mp3-441khz-16bit-320kbps-ilaiyaraaja-musical/&do=findComment&comment=332083)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
