@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Badri - Kaadhal Solvadhu  - Remastered 1080P - DD5.1 &amp; DTSHDMA 5.1 &lpar;Lossless FLAC Upmix&rpar; - 325MB - Mediafire](https://www.1tamilmv.pics/index.php?/forums/topic/166387-badri-kaadhal-solvadhu-remastered-1080p-dd51-dtshdma-51-lossless-flac-upmix-325mb-mediafire/&do=findComment&comment=332107)
+- [The Subtle Art of Not Giving a F*ck - EBook](https://www.1tamilmv.pics/index.php?/forums/topic/166386-the-subtle-art-of-not-giving-a-fck-ebook/&do=findComment&comment=332106)
+- [Inner Peace &lpar;From &quot;Gulu Gulu&quot;&rpar; - Santhosh Narayanan - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 40 MB | 21 MB | 7 MB | 3 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166381-inner-peace-from-gulu-gulu-santhosh-narayanan-flac-24bit16bit-mp3-320kbps128kbps-40-mb-21-mb-7-mb-3-mb/&do=findComment&comment=332105)
 - [Love Failure &lpar;2012&rpar; Telugu JC TRUE HDRips - [1080p / 720p - 5GB - 2.5GB - 1.4GB] - AVC - AAC - [x264 / 700MB - 400MB] - [GDLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/135038-love-failure-2012-telugu-jc-true-hdrips-1080p-720p-5gb-25gb-14gb-avc-aac-x264-700mb-400mb-gdlinks/&do=findComment&comment=332103)
 - [Vishwaroopam &lpar;2013&rpar; Tamil Blu-Ray - [1080p - 14.5GB - 9GB - 6GB - 4GB - 2.5GB - 1.6GB | 720p - 1.4GB - 900MB | x264 - 700MB - 400MB - 250MB] + ESub](https://www.1tamilmv.pics/index.php?/forums/topic/104552-vishwaroopam-2013-tamil-blu-ray-1080p-145gb-9gb-6gb-4gb-25gb-16gb-720p-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332102)
-- [R23 Criminals Diary &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166384-r23-criminals-diary-2022-tamil-true-web-dl-1080p-720p-avc-5gb-24gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332101)
-- [Circle [Kasaba] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.3GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166354-circle-kasaba-2022-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-malayalam-23gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332100)
-- [Selfie Mummy Googl Daddy &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166356-selfie-mummy-googl-daddy-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332099)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
