@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Love Failure &lpar;2012&rpar; Telugu JC TRUE HDRips - [1080p / 720p - 5GB - 2.5GB - 1.4GB] - AVC - AAC - [x264 / 700MB - 400MB] - [GDLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/135038-love-failure-2012-telugu-jc-true-hdrips-1080p-720p-5gb-25gb-14gb-avc-aac-x264-700mb-400mb-gdlinks/&do=findComment&comment=332103)
+- [Vishwaroopam &lpar;2013&rpar; Tamil Blu-Ray - [1080p - 14.5GB - 9GB - 6GB - 4GB - 2.5GB - 1.6GB | 720p - 1.4GB - 900MB | x264 - 700MB - 400MB - 250MB] + ESub](https://www.1tamilmv.pics/index.php?/forums/topic/104552-vishwaroopam-2013-tamil-blu-ray-1080p-145gb-9gb-6gb-4gb-25gb-16gb-720p-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332102)
 - [R23 Criminals Diary &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166384-r23-criminals-diary-2022-tamil-true-web-dl-1080p-720p-avc-5gb-24gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332101)
 - [Circle [Kasaba] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.3GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166354-circle-kasaba-2022-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-malayalam-23gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332100)
 - [Selfie Mummy Googl Daddy &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166356-selfie-mummy-googl-daddy-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332099)
-- [Takkar &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166362-takkar-2022-kannada-true-web-dl-1080p-720p-avc-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332098)
-- [R23 Criminals Diary &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166384-r23-criminals-diary-2022-tamil-true-web-dl-1080p-720p-avc-5gb-24gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332097)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
