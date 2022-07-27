@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DC Extended Universe Collection &lpar;2013-2021&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166391-dc-extended-universe-collection-2013-2021-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332112)
 - [Ghajaraju &lpar;2012&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.5GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - [DD+5.1 - 192kbps &amp; AAC 2.0] - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166390-ghajaraju-2012-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-15gb-480p-900mb-360p-700mb-240p-450mb-avc-dd51-192kbps-aac-20-gdrivelinks/&do=findComment&comment=332111)
 - [R23 Criminals Diary &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166384-r23-criminals-diary-2022-tamil-true-web-dl-1080p-720p-avc-5gb-24gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332110)
 - [Virumaandi &lpar;2004&rpar; Tamil 1080p AMZN WEB-DL DD+2.0 DolbyAtmos 5.1](https://www.1tamilmv.pics/index.php?/forums/topic/166389-virumaandi-2004-tamil-1080p-amzn-web-dl-dd20-dolbyatmos-51/&do=findComment&comment=332109)
 - [Baby&#39;s Day Out &lpar;1994&rpar; HDRip - 720p - [Tamil + Hindi + Eng +Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166388-babys-day-out-1994-hdrip-720p-tamil-hindi-eng-telugu/&do=findComment&comment=332108)
-- [Badri - Kaadhal Solvadhu  - Remastered 1080P - DD5.1 &amp; DTSHDMA 5.1 &lpar;Lossless FLAC Upmix&rpar; - 325MB - Mediafire](https://www.1tamilmv.pics/index.php?/forums/topic/166387-badri-kaadhal-solvadhu-remastered-1080p-dd51-dtshdma-51-lossless-flac-upmix-325mb-mediafire/&do=findComment&comment=332107)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
