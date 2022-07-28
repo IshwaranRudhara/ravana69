@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Polama Oorgoolam &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166485-polama-oorgoolam-2022-tamil-true-web-dl-1080p-720p-avc-35gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332238)
-- [Paiya &lpar;2010&rpar; Original Motion Picture Soundtrack - Yuvanshankar Raja Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 184 MB | 64 MB | 26MB](https://www.1tamilmv.pics/index.php?/forums/topic/165686-paiya-2010-original-motion-picture-soundtrack-yuvanshankar-raja-musical-flac-16bit-mp3-320kbps128kbps-184-mb-64-mb-26mb/&do=findComment&comment=332237)
-- [OKAADU 2003 TELUNGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH 2.0 STEREO AUDIO.&lpar;REQUESTED&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166484-okaadu-2003-telungu-movie-remasterd-video-songs-hd1080p-with-20-stereo-audiorequested/&do=findComment&comment=332236)
-- [KASTHURIMAN 2007 MOVIE VIDEO SONGS UPSCALED HD1080P WITH &lpar;5.1 DTS AND 2.0 STEREO&rpar; AUDIO.](https://www.1tamilmv.pics/index.php?/forums/topic/166483-kasthuriman-2007-movie-video-songs-upscaled-hd1080p-with-51-dts-and-20-stereo-audio/&do=findComment&comment=332235)
-- [Paiya &lpar;2010&rpar; Original Motion Picture Soundtrack - Yuvanshankar Raja Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 184 MB | 64 MB | 26MB](https://www.1tamilmv.pics/index.php?/forums/topic/165686-paiya-2010-original-motion-picture-soundtrack-yuvanshankar-raja-musical-flac-16bit-mp3-320kbps128kbps-184-mb-64-mb-26mb/&do=findComment&comment=332234)
+- [OKE OKAADU 1999 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH ORIGINAL 2.0 AUDIO.&lpar;REQUESTED&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166491-oke-okaadu-1999-telugu-movie-remasterd-video-songs-hd1080p-with-original-20-audiorequested/&do=findComment&comment=332246)
+- [Naruto &lpar;2005&rpar; S01 - WEB-DL - 420p - [Japanese + English] DDP2.0 - H.264 - 3GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166490-naruto-2005-s01-web-dl-420p-japanese-english-ddp20-h264-3gb-esub/&do=findComment&comment=332245)
+- [Spy x Family &lpar;2022&rpar; S01 NF - WEB-DL - 1080p - Japanese - DDP2.0 - H.264 - 2.7GB - MSub](https://www.1tamilmv.pics/index.php?/forums/topic/166489-spy-x-family-2022-s01-nf-web-dl-1080p-japanese-ddp20-h264-27gb-msub/&do=findComment&comment=332244)
+- [Death Note &lpar;2006&rpar; S1 NF - WEB-DL [1080p - English - DDP2.0] - H.264 - 19GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166488-death-note-2006-s1-nf-web-dl-1080p-english-ddp20-h264-19gb-esub/&do=findComment&comment=332243)
+- [The Seven Deadly Sins &lpar;2014&rpar; S1 NF - WEB-DL [720p - English - DDP2.0] - H.264 - 4GB - MSub](https://www.1tamilmv.pics/index.php?/forums/topic/166487-the-seven-deadly-sins-2014-s1-nf-web-dl-720p-english-ddp20-h264-4gb-msub/&do=findComment&comment=332242)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
