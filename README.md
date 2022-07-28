@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Good Luck Jerry &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166501-good-luck-jerry-2022-hindi-true-web-dl-1080p-720p-avc-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332257)
+- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 11GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166498-191a-2022-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-11gb-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=332254)
 - [Kuruthi Aattam Official Trailer - 1080P&amp; 4K - DD5.1 Upmixed](https://www.1tamilmv.pics/index.php?/forums/topic/166497-kuruthi-aattam-official-trailer-1080p-4k-dd51-upmixed/&do=findComment&comment=332253)
 - [777 Charlie Telugu hd](https://www.1tamilmv.pics/index.php?/forums/topic/166496-777-charlie-telugu-hd/&do=findComment&comment=332252)
 - [Darja telugu movie](https://www.1tamilmv.pics/index.php?/forums/topic/166495-darja-telugu-movie/&do=findComment&comment=332251)
-- [Koffee with Karan Vijay devarakonda](https://www.1tamilmv.pics/index.php?/forums/topic/166494-koffee-with-karan-vijay-devarakonda/&do=findComment&comment=332250)
-- [Vikrant Rona hd telugu](https://www.1tamilmv.pics/index.php?/forums/topic/166493-vikrant-rona-hd-telugu/&do=findComment&comment=332249)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
