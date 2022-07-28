@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vaade Veedu &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166473-vaade-veedu-2022-telugu-true-web-dl-1080p-720p-avc-aac-23gb-13gb-x264-700mb-400mb-esub-gdrivelinks/&do=findComment&comment=332220)
+- [Vikrant Rona &lpar;2022&rpar; Multi Audio [Telugu Tamil Hindi Kannada] Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166472-vikrant-rona-2022-multi-audio-telugu-tamil-hindi-kannada-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332219)
+- [Maa Balaji &lpar;1999&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-5.5GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166471-maa-balaji-1999-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-55gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=332218)
+- [Astram &lpar;2006&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6.5GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166470-astram-2006-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-65gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=332217)
 - [Baymax! &lpar;2022&rpar; - English - Disney+ - TV Series - Season 1 - 6 Episodes - WEBRip - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166468-baymax-2022-english-disney-tv-series-season-1-6-episodes-webrip-x264-aac-esubs/&do=findComment&comment=332216)
-- [75 Tamil Movies - 1080p / 4K - SUN NXT / AMZN / SS / TK / AHA / JC / ZEE5 WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 500[Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/164145-75-tamil-movies-1080p-4k-sun-nxt-amzn-ss-tk-aha-jc-zee5-web-dl-h264-dd51-ddp20-aac-esub-500gdrive/&do=findComment&comment=332215)
-- [College Girls Be Safe !!!](https://www.1tamilmv.pics/index.php?/forums/topic/166469-college-girls-be-safe/&do=findComment&comment=332214)
-- [Baymax! &lpar;2022&rpar; - English - Disney+ - TV Series - Season 1 - 6 Episodes - WEBRip - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166468-baymax-2022-english-disney-tv-series-season-1-6-episodes-webrip-x264-aac-esubs/&do=findComment&comment=332213)
-- [The Legend &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166467-the-legend-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=332212)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
