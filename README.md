@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [OKE OKAADU 1999 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH ORIGINAL 2.0 AUDIO.&lpar;REQUESTED&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166491-oke-okaadu-1999-telugu-movie-remasterd-video-songs-hd1080p-with-original-20-audiorequested/&do=findComment&comment=332246)
-- [Naruto &lpar;2005&rpar; S01 - WEB-DL - 420p - [Japanese + English] DDP2.0 - H.264 - 3GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166490-naruto-2005-s01-web-dl-420p-japanese-english-ddp20-h264-3gb-esub/&do=findComment&comment=332245)
-- [Spy x Family &lpar;2022&rpar; S01 NF - WEB-DL - 1080p - Japanese - DDP2.0 - H.264 - 2.7GB - MSub](https://www.1tamilmv.pics/index.php?/forums/topic/166489-spy-x-family-2022-s01-nf-web-dl-1080p-japanese-ddp20-h264-27gb-msub/&do=findComment&comment=332244)
-- [Death Note &lpar;2006&rpar; S1 NF - WEB-DL [1080p - English - DDP2.0] - H.264 - 19GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166488-death-note-2006-s1-nf-web-dl-1080p-english-ddp20-h264-19gb-esub/&do=findComment&comment=332243)
-- [The Seven Deadly Sins &lpar;2014&rpar; S1 NF - WEB-DL [720p - English - DDP2.0] - H.264 - 4GB - MSub](https://www.1tamilmv.pics/index.php?/forums/topic/166487-the-seven-deadly-sins-2014-s1-nf-web-dl-720p-english-ddp20-h264-4gb-msub/&do=findComment&comment=332242)
+- [Kuruthi Aattam Official Trailer - 1080P&amp; 4K - DD5.1 Upmixed](https://www.1tamilmv.pics/index.php?/forums/topic/166497-kuruthi-aattam-official-trailer-1080p-4k-dd51-upmixed/&do=findComment&comment=332253)
+- [777 Charlie Telugu hd](https://www.1tamilmv.pics/index.php?/forums/topic/166496-777-charlie-telugu-hd/&do=findComment&comment=332252)
+- [Darja telugu movie](https://www.1tamilmv.pics/index.php?/forums/topic/166495-darja-telugu-movie/&do=findComment&comment=332251)
+- [Koffee with Karan Vijay devarakonda](https://www.1tamilmv.pics/index.php?/forums/topic/166494-koffee-with-karan-vijay-devarakonda/&do=findComment&comment=332250)
+- [Vikrant Rona hd telugu](https://www.1tamilmv.pics/index.php?/forums/topic/166493-vikrant-rona-hd-telugu/&do=findComment&comment=332249)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
