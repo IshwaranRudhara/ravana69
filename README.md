@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Legend &lpar;2022&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166506-the-legend-2022-telugu-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332262)
 - [Rocketry: The Nambi Effect &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 3GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166505-rocketry-the-nambi-effect-2022-hindi-true-web-dl-1080p-720p-avc-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=332261)
 - [🔰GOOD LUCK JERRY 2022 - HINDI TRUE WEB-DL - &lpar;1080p&rpar; HQ - AVC - [UNTOUCHED] - &lpar;DD+ 5.1 - 192Kbps&rpar;- [4.94GB] - &lpar;GOOGL DRIVE LINK&rpar;🔰](https://www.1tamilmv.pics/index.php?/forums/topic/166504-%F0%9F%94%B0good-luck-jerry-2022-hindi-true-web-dl-1080p-hq-avc-untouched-dd-51-192kbps-494gb-googl-drive-link%F0%9F%94%B0/&do=findComment&comment=332260)
 - [Shikaru &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.6GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166503-shikaru-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-36gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332259)
 - [Good Luck Jerry &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166501-good-luck-jerry-2022-hindi-true-web-dl-1080p-720p-avc-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332257)
-- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 4.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166498-191a-2022-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-8gb-45gb-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=332254)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
