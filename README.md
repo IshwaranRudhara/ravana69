@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [KODITTA EDANGALAI NIRAPUGA 2017 - DAMUKAATLAN DUMUKAATLAN VIDEO SONG HD1080P WITH &lpar;5.1 DTS AND 2.0 STEREO&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166568-koditta-edangalai-nirapuga-2017-damukaatlan-dumukaatlan-video-song-hd1080p-with-51-dts-and-20-stereo/&do=findComment&comment=332359)
+- [Michael Jackson – Scream &lpar;2017&rpar; -  DD5.1 &amp; DTS 5.1 &lpar;FLAC Upmix&rpar; - CiTYhUNTER](https://www.1tamilmv.pics/index.php?/forums/topic/166567-michael-jackson-%E2%80%93-scream-2017-dd51-dts-51-flac-upmix-cityhunter/&do=findComment&comment=332358)
+- [BUJJIGADU &lpar;2008&rpar; [Complete Music Video Album] - TRUE WEB-DL - AVC - 1080p - H264 - DD+5.1 - 2GB - [avatar]](https://www.1tamilmv.pics/index.php?/forums/topic/166566-bujjigadu-2008-complete-music-video-album-true-web-dl-avc-1080p-h264-dd51-2gb-avatar/&do=findComment&comment=332357)
 - [Vamsoddharakudu &lpar;2000&rpar; Telugu JC TRUE WEB-DL - [1080p-9GB-4.5GB / 720p-1.4GB / 480p-950MB / 360p-750MB / 240p-500MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166565-vamsoddharakudu-2000-telugu-jc-true-web-dl-1080p-9gb-45gb-720p-14gb-480p-950mb-360p-750mb-240p-500mb-avc-aac-gdrivelinks/&do=findComment&comment=332356)
 - [Purple Hearts &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166530-purple-hearts-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-3gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=332355)
-- [Vattam &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.1GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166550-vattam-2022-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-51gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332354)
-- [Vattam &lpar;2022&rpar; ]Tamil  + Tel + Mal + Kan] Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166564-vattam-2022-tamil-tel-mal-kan-full-movie-watch-now-hq-for-free/&do=findComment&comment=332353)
-- [Ramarao on Duty &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166563-ramarao-on-duty-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=332352)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
