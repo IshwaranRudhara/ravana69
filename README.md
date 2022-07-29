@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Shikaru &lpar;2022&rpar; Telugu WEB-DL - 720p, 1080p &amp; 4K HEVC - X264 - ESubs &lpar;Mirror Download Links&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166541-shikaru-2022-telugu-web-dl-720p-1080p-4k-hevc-x264-esubs-mirror-download-links/&do=findComment&comment=332322)
-- [Khatarnak &lpar;2006&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166241-khatarnak-2006-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=332317)
-- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 4.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166498-191a-2022-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-8gb-45gb-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=332315)
-- [Titliyaan &lpar;2022&rpar; S01 Hindi ULLU WEB Series 18+ UnRated Webseries](https://www.1tamilmv.pics/index.php?/forums/topic/166540-titliyaan-2022-s01-hindi-ullu-web-series-18-unrated-webseries/&do=findComment&comment=332314)
-- [Ramarao on Duty &lpar;2022&rpar; Telugu Pre-DVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166537-ramarao-on-duty-2022-telugu-pre-dvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332311)
+- [Vikrant Rona &lpar;2022&rpar; Tamil Proper HQ PreDVD - [720p - x264 - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166549-vikrant-rona-2022-tamil-proper-hq-predvd-720p-x264-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332334)
+- [Vattam &lpar;2022&rpar; DSNP WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 5 GB | 1.92 GB](https://www.1tamilmv.pics/index.php?/forums/topic/166548-vattam-2022-dsnp-web-dl-multi-ddp51-esubs-x264-1080p-720p-5-gb-192-gb/&do=findComment&comment=332333)
+- [Thenali - Alangatti Mazhai - Remastered 1080P - DD5.1 &amp; DTSHDMA 5.1 &lpar;Lossless FLAC Upmix&rpar; - 337MB - Mediafire](https://www.1tamilmv.pics/index.php?/forums/topic/166546-thenali-alangatti-mazhai-remastered-1080p-dd51-dtshdma-51-lossless-flac-upmix-337mb-mediafire/&do=findComment&comment=332331)
+- [Subash &lpar;1996&rpar;.Tamil.480p.HDTV.264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166287-subash-1996tamil480phdtv264aac20-2gb-gdrive/&do=findComment&comment=332329)
+- [Rudhra &lpar;1991&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.8GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166352-rudhra-1991tamil480phdtvx264aac20-18gb-gdrive/&do=findComment&comment=332328)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
