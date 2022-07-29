@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vilangu - S01E&lpar;01-07&rpar; Single File - Tamil - 720p &amp; 1080p 10Bit HEVC - x265 - AAC2.0](https://www.1tamilmv.pics/index.php?/forums/topic/166510-vilangu-s01e01-07-single-file-tamil-720p-1080p-10bit-hevc-x265-aac20/&do=findComment&comment=332270)
-- [Ghar Waapsi &lpar;2022&rpar; S01 EP&lpar;01-06&rpar; - HQ HDRip - 720p - HEVC - x265 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - AAC2.0 - 1.8GB - ESub  #Single_File](https://www.1tamilmv.pics/index.php?/forums/topic/166509-ghar-waapsi-2022-s01-ep01-06-hq-hdrip-720p-hevc-x265-tamil-telugu-hindi-malayalam-kannada-aac20-18gb-esub-single_file/&do=findComment&comment=332269)
-- [Shikaru &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.7GB - 2.5GB &amp; 1.3GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166508-shikaru-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-37gb-25gb-13gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332268)
-- [Once Upon A Time &lpar;From &quot;Vikram&quot;&rpar; 1080p Tidal WEB-DL Tamil AAC2.0 x264 - 86 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166507-once-upon-a-time-from-vikram-1080p-tidal-web-dl-tamil-aac20-x264-86-mb/&do=findComment&comment=332267)
-- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 4.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166498-191a-2022-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-8gb-45gb-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=332266)
+- [Kill.Zone.2.2015  UN Cut DD5.1 Tamil +AAC 2.0 Hindi + DD5.1 Chinese 1080p.BluRay.x264.AAC5.1-Esubs 2.7GB](https://www.1tamilmv.pics/index.php?/forums/topic/166521-killzone22015-un-cut-dd51-tamil-aac-20-hindi-dd51-chinese-1080pblurayx264aac51-esubs-27gb/&do=findComment&comment=332281)
+- [Thanga Magan &lpar;1983&rpar;.Tamil.480p .HDTV.x264.AAC2.0 - 1.9GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166520-thanga-magan-1983tamil480p-hdtvx264aac20-19gb-gdrive/&do=findComment&comment=332280)
+- [Onna Iruka Kathukanum &lpar;1992&rpar;.Tamil.480p.Web-dl.x264.AAC2.0 - 1.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166519-onna-iruka-kathukanum-1992tamil480pweb-dlx264aac20-17gb-gdrive/&do=findComment&comment=332279)
+- [Masoom &lpar;2022&rpar; S01 EP&lpar;01-06&rpar; #Single_file HQ HDRip - 720p - x264 - AAC 2.0 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 1.3GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166518-masoom%C2%A02022-s01-ep01-06%C2%A0single_file-hq-hdrip-720p-x264-aac-20-tamil-%C2%A0telugu-hindi-malayalam-kannada-%C2%A013gb%C2%A0-%C2%A0esub/&do=findComment&comment=332278)
+- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166517-191a-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=332277)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
