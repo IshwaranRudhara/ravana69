@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paappan &lpar;2022&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166538-paappan-2022-malayalam-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=332377)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=332376)
 - [Purple Hearts &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166530-purple-hearts-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-3gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=332375)
 - [Vattam &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.1GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166499-vattam-2022-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-malayalam-kannada-51gb-26gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=332374)
 - [Paper Rocket - S01E&lpar;01-07&rpar; - Tamil 1080p HEVC DDP5.1 - Showflix [Direct Download + GDrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166581-paper-rocket-s01e01-07-tamil-1080p-hevc-ddp51-showflix-direct-download-gdrive/&do=findComment&comment=332373)
-- [DC League of Super-Pets &lpar;2022&rpar; HDCAMRip - [720p - English - AAC2.0 - H.264 - 1.8GB]](https://www.1tamilmv.pics/index.php?/forums/topic/166580-dc-league-of-super-pets-2022-hdcamrip-720p-english-aac20-h264-18gb/&do=findComment&comment=332372)
-- [Atithi Devo Bhava &lpar;2022&rpar; WEB-DL  - 1080P - Telugu - DD 5.1  - H.264 - 6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166579-atithi-devo-bhava-2022-web-dl-1080p-telugu-dd-51-h264-6gb/&do=findComment&comment=332371)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
