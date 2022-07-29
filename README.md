@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gulu Gulu &lpar;2022&rpar; Original Motion Picture Soundtrack - Santhosh Narayanan Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 149 MB | 78 MB | 25 MB | 12 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166446-gulu-gulu-2022-original-motion-picture-soundtrack-santhosh-narayanan-musical-flac-24bit16bit-mp3-320kbps128kbps-149-mb-78-mb-25-mb-12-mb/&do=findComment&comment=332288)
+- [Recce &lpar;2022&rpar; S01 EP&lpar;01-07&rpar; HQ HDRip - 1080p - x264 - [Tamil + Telugu] - AAC - 2GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166527-recce%C2%A02022-s01-ep01-07-hq-hdrip-1080p-x264-tamil%C2%A0-telugu-aac-2gb%C2%A0-%C2%A0esub/&do=findComment&comment=332287)
+- [Kana Kaanum Kaalangal &lpar;2022&rpar; S01 EP[55-58] 720p Tamil Hotstar WEB-DL AAC2.0x264 - Showflix](https://www.1tamilmv.pics/index.php?/forums/topic/166526-kana-kaanum-kaalangal-2022-s01-ep55-58-720p-tamil-hotstar-web-dl-aac20x264-showflix/&do=findComment&comment=332286)
+- [Kana Kaanum Kaalangal &lpar;2022&rpar; S01 EP[55-58] 720p Tamil Hotstar WEB-DL AAC2.0x264 - Showflix](https://www.1tamilmv.pics/index.php?/forums/topic/166525-kana-kaanum-kaalangal-2022-s01-ep55-58-720p-tamil-hotstar-web-dl-aac20x264-showflix/&do=findComment&comment=332285)
 - [Prakashan Parakkatte &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166524-prakashan-parakkatte-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=332284)
-- [Maaraya &lpar;2022&rpar; Kannada CAM - [720p - x264 - 900MB | x264 - 400MB] {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166523-maaraya-2022-kannada-cam-720p-x264-900mb-x264-400mb-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332283)
-- [Prakashan Parakkatte &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.7GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166522-prakashan-parakkatte-2022-malayalam-true-web-dl-1080p-720p-avc-27gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=332282)
-- [Kill.Zone.2.2015  UN Cut DD5.1 Tamil +AAC 2.0 Hindi + DD5.1 Chinese 1080p.BluRay.x264.AAC5.1-Esubs 2.7GB](https://www.1tamilmv.pics/index.php?/forums/topic/166521-killzone22015-un-cut-dd51-tamil-aac-20-hindi-dd51-chinese-1080pblurayx264aac51-esubs-27gb/&do=findComment&comment=332281)
-- [Thanga Magan &lpar;1983&rpar;.Tamil.480p .HDTV.x264.AAC2.0 - 1.9GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166520-thanga-magan-1983tamil480p-hdtvx264aac20-19gb-gdrive/&do=findComment&comment=332280)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
