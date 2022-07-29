@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shikaru &lpar;2022&rpar; Telugu WEB-DL - 720p, 1080p &amp; 4K HEVC - X264 - ESubs &lpar;Mirror Download Links&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166541-shikaru-2022-telugu-web-dl-720p-1080p-4k-hevc-x264-esubs-mirror-download-links/&do=findComment&comment=332322)
+- [Khatarnak &lpar;2006&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166241-khatarnak-2006-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=332317)
 - [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 4.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166498-191a-2022-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-8gb-45gb-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=332315)
 - [Titliyaan &lpar;2022&rpar; S01 Hindi ULLU WEB Series 18+ UnRated Webseries](https://www.1tamilmv.pics/index.php?/forums/topic/166540-titliyaan-2022-s01-hindi-ullu-web-series-18-unrated-webseries/&do=findComment&comment=332314)
-- [Shikaru &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.6GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166503-shikaru-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-36gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332310)
-- [Gulu Gulu &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166536-gulu-gulu-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332309)
-- [Choodiwala Part 2 Ullu Web Series 18+](https://www.1tamilmv.pics/index.php?/forums/topic/165458-choodiwala-part-2-ullu-web-series-18/&do=findComment&comment=332308)
+- [Ramarao on Duty &lpar;2022&rpar; Telugu Pre-DVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166537-ramarao-on-duty-2022-telugu-pre-dvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332311)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
