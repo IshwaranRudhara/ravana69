@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Prakashan Parakkatte &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166524-prakashan-parakkatte-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=332305)
-- [Purple Hearts &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166530-purple-hearts-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-3gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=332304)
-- [Good Luck Jerry &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166501-good-luck-jerry-2022-hindi-true-web-dl-1080p-720p-avc-24gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332302)
-- [DOLBY SONGS &lpar; TAMIL &rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166535-dolby-songs-tamil/&do=findComment&comment=332301)
-- [Vikrant Rona &lpar;2022&rpar; Telugu Pre-DVD - [720p - x264 - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166534-vikrant-rona-2022-telugu-pre-dvd-720p-x264-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332300)
+- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 4.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166498-191a-2022-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-8gb-45gb-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=332315)
+- [Titliyaan &lpar;2022&rpar; S01 Hindi ULLU WEB Series 18+ UnRated Webseries](https://www.1tamilmv.pics/index.php?/forums/topic/166540-titliyaan-2022-s01-hindi-ullu-web-series-18-unrated-webseries/&do=findComment&comment=332314)
+- [Shikaru &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.6GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166503-shikaru-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-36gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332310)
+- [Gulu Gulu &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166536-gulu-gulu-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332309)
+- [Choodiwala Part 2 Ullu Web Series 18+](https://www.1tamilmv.pics/index.php?/forums/topic/165458-choodiwala-part-2-ullu-web-series-18/&do=findComment&comment=332308)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
