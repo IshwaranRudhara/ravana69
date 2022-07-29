@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Prakashan Parakkatte &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166524-prakashan-parakkatte-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=332284)
+- [Maaraya &lpar;2022&rpar; Kannada CAM - [720p - x264 - 900MB | x264 - 400MB] {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166523-maaraya-2022-kannada-cam-720p-x264-900mb-x264-400mb-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332283)
+- [Prakashan Parakkatte &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.7GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166522-prakashan-parakkatte-2022-malayalam-true-web-dl-1080p-720p-avc-27gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=332282)
 - [Kill.Zone.2.2015  UN Cut DD5.1 Tamil +AAC 2.0 Hindi + DD5.1 Chinese 1080p.BluRay.x264.AAC5.1-Esubs 2.7GB](https://www.1tamilmv.pics/index.php?/forums/topic/166521-killzone22015-un-cut-dd51-tamil-aac-20-hindi-dd51-chinese-1080pblurayx264aac51-esubs-27gb/&do=findComment&comment=332281)
 - [Thanga Magan &lpar;1983&rpar;.Tamil.480p .HDTV.x264.AAC2.0 - 1.9GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166520-thanga-magan-1983tamil480p-hdtvx264aac20-19gb-gdrive/&do=findComment&comment=332280)
-- [Onna Iruka Kathukanum &lpar;1992&rpar;.Tamil.480p.Web-dl.x264.AAC2.0 - 1.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166519-onna-iruka-kathukanum-1992tamil480pweb-dlx264aac20-17gb-gdrive/&do=findComment&comment=332279)
-- [Masoom &lpar;2022&rpar; S01 EP&lpar;01-06&rpar; #Single_file HQ HDRip - 720p - x264 - AAC 2.0 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 1.3GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166518-masoom%C2%A02022-s01-ep01-06%C2%A0single_file-hq-hdrip-720p-x264-aac-20-tamil-%C2%A0telugu-hindi-malayalam-kannada-%C2%A013gb%C2%A0-%C2%A0esub/&do=findComment&comment=332278)
-- [19&lpar;1&rpar;&lpar;a&rpar; &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166517-191a-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=332277)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
