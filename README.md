@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aadukalam &lpar;2010&rpar; Original Motion Picture Soundtrack - G.V. Prakash Kumar Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 207 MB | 72 MB | 35 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166586-aadukalam-2010-original-motion-picture-soundtrack-gv-prakash-kumar-musical-flac-16bit-mp3-320kbps128kbps-207-mb-72-mb-35-mb/&do=findComment&comment=332415)
+- [Ek Villain Returns &lpar;2022&rpar; Hindi v2 HQ PreDVD - [1080p &amp; 720p - x264 - 2GB &amp; 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166500-ek-villain-returns-2022-hindi-v2-hq-predvd-1080p-720p-x264-2gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=332414)
+- [Agent Anand Santosh &lpar;2022&rpar; S01 EP&lpar;01-03&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 2.6GB - 1.6GB &amp; 800MB] _TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166156-agent-anand-santosh-2022-s01-ep01-03-telugu-true-web-dl-4k-1080p-720p-hevc-avc-26gb-16gb-800mb-_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332413)
 - [Least HOT - Ek Villain Returns 2022 PreDvd V2 720p Hindi AAC 2.0 x264 - UNTOUCHED - 1GB - GRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166607-least-hot-ek-villain-returns-2022-predvd-v2-720p-hindi-aac-20-x264-untouched-1gb-grive/&do=findComment&comment=332409)
 - [A.K.47 &lpar;1999&rpar; Telugu SUNNXT TRUE WEB-DL &amp; HDRips - [1080p-2GB / 720p-1GB / 576p-500MB / 480p-1.7GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166605-ak47-1999-telugu-sunnxt-true-web-dl-hdrips-1080p-2gb-720p-1gb-576p-500mb-480p-17gb-avc-aac-gdrivelinks/&do=findComment&comment=332407)
-- [Purple Hearts &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166530-purple-hearts-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-3gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=332406)
-- [Polama Oorgoolam &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166485-polama-oorgoolam-2022-tamil-true-web-dl-1080p-720p-avc-35gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332405)
-- [UNNAI KODU ENNAI THARUVEN 2000 - UNNAI KODU ENNAI THARUVEN VIDEO SONG HDTV1080P WITH 5.1 DTS](https://www.1tamilmv.pics/index.php?/forums/topic/166604-unnai-kodu-ennai-tharuven-2000-unnai-kodu-ennai-tharuven-video-song-hdtv1080p-with-51-dts/&do=findComment&comment=332404)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
