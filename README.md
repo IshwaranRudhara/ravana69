@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[GDrive]   Aayirathil Oruvan &lpar;2010&rpar; Tamil [Uncut] - [Revised Version] - 1080p -720p TRUE WEB-DL - AVC - UNTOUCHED - x264 - 8.3GB - 6.9GB 4.4GB 2.5GB 1.3GB ESub]](https://www.1tamilmv.pics/index.php?/forums/topic/166597-gdrive-aayirathil-oruvan-2010-tamil-uncut-revised-version-1080p-720p-true-web-dl-avc-untouched-x264-83gb-69gb-44gb-25gb-13gb-esub/&do=findComment&comment=332397)
+- [Dora the Explorer &lpar;2002&rpar; Season 02 - WEB-DL - 576p [Tamil + Telugu + Hindi + English] DDP2.0 - H.264 - 8.7GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166596-dora-the-explorer-2002-season-02-web-dl-576p-tamil-telugu-hindi-english-ddp20-h264-87gb-esub/&do=findComment&comment=332396)
+- [Kamaraj &lpar;2004&rpar; AMZN - WEB-DL - 576p - Tamil - DDP2.0 &lpar;224Kbps&rpar; - H.264 - 1.1GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166595-kamaraj-2004-amzn-web-dl-576p-tamil-ddp20-224kbps-h264-11gb-esub/&do=findComment&comment=332395)
+- [The Legend &lpar;2022&rpar; Telugu Proper HQ PreDVD - [720p - x264 - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166594-the-legend-2022-telugu-proper-hq-predvd-720p-x264-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332394)
 - [DHOOL 2003 MOVIE COMPLETE VIDEO SONGS &lpar;AMAZON WBDL HD1080P WITH 5.1 DTS&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166593-dhool-2003-movie-complete-video-songs-amazon-wbdl-hd1080p-with-51-dts/&do=findComment&comment=332393)
-- [777 Charlie &lpar;2022&rpar; Multi Audio [Telugu Tamil Hindi Kannada] TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 10GB - 3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166398-777-charlie-2022-multi-audio-telugu-tamil-hindi-kannada-true-web-dl-1080p-720p-avc-hevc-10gb-3gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332392)
-- [Andala Rakshasi &lpar;2012&rpar; Telugu GPlay &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS + DD+5.1 &lpar;384Kbps&rpar;] E-Subs By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166592-andala-rakshasi-2012-telugu-gplay-music-video-album-1080p-web-hd-untouched-avc-dts-dd51-384kbps-e-subs-by-beast-uk/&do=findComment&comment=332391)
-- [Kattumarakaran &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166589-kattumarakaran-1995tamil480phdtvx264aac20-22gb-gdrive/&do=findComment&comment=332390)
-- [Naalu Policeum Nalla Irundha Oorum &lpar;2015&rpar; Tamil 1080p HD AVC x264 - AAC - 2.4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166591-naalu-policeum-nalla-irundha-oorum-2015-tamil-1080p-hd-avc-x264-aac-24gb/&do=findComment&comment=332389)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
