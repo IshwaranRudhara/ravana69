@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Before I Wake &lpar;2016&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166614-before-i-wake-2016-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-21gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=332434)
-- [Ante Sundaraniki &lpar;2022&rpar; Telugu TRUE WEB-DL - 4K HQ SDR - HEVC - UNTOUCHED - &lpar;DD+ 5.1 - 640Kbps &amp; AAC 2.0&rpar; - 20.9GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166459-ante-sundaraniki-2022-telugu-true-web-dl-4k-hq-sdr-hevc-untouched-dd-51-640kbps-aac-20-209gb-esub/&do=findComment&comment=332433)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=332432)
-- [Thoranai &lpar;2009&rpar; WEB - DL - 1080p - Tamil - AAC - H.264 - 8.7GB](https://www.1tamilmv.pics/index.php?/forums/topic/166577-thoranai-2009-web-dl-1080p-tamil-aac-h264-87gb/&do=findComment&comment=332431)
-- [M.Kumaran Son Of Mahalakshmi &lpar;2004&rpar; SunNXT - WEB-DL [1080p - Tamil - DDP5.1 &lpar;192Kbps&rpar;] - H.264 - 6.2GB.mkv G - DRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166622-mkumaran-son-of-mahalakshmi-2004-sunnxt-web-dl-1080p-tamil-ddp51-192kbps-h264-62gbmkv-g-drive/&do=findComment&comment=332430)
+- [KANETHIREY THONDRINAL 1998 MOVIE VIDEO SONGS HDTV1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166624-kanethirey-thondrinal-1998-movie-video-songs-hdtv1080p-with-51-dts/&do=findComment&comment=332442)
+- [777 Charlie &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166394-777-charlie-2022-tamil-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332441)
+- [Kanaa Kaanum Kaalangal &lpar;2022&rpar; S01 EP &lpar;55-58&rpar; Tamil - 720p HQ HDRip - x264 - AAC - 450MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166528-kanaa-kaanum-kaalangal-2022-s01-ep-55-58-tamil-720p-hq-hdrip-x264-aac-450mb-esub/&do=findComment&comment=332440)
+- [Purple Hearts &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166530-purple-hearts-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-3gb-11gb-x264-tam-hin-450mb-esub/&do=findComment&comment=332439)
+- [Vattam &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.1GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166499-vattam-2022-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-malayalam-kannada-51gb-26gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=332438)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
