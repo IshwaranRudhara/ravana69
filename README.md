@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kadhal Kondaen &lpar;Collector&#39;s Edition&rpar; &lpar;2003&rpar; - Tamil - Five Star Audio - FACD-078 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Yuvan Shankar Raja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166582-kadhal-kondaen-collectors-edition-2003-tamil-five-star-audio-facd-078%C2%A0-true-mp3-441khz-16bit-320kbps-yuvan-shankar-raja%C2%A0musical/&do=findComment&comment=332378)
-- [Paappan &lpar;2022&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166538-paappan-2022-malayalam-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=332377)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=332376)
-- [Purple Hearts &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166530-purple-hearts-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-3gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=332375)
-- [Vattam &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.1GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166499-vattam-2022-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-malayalam-kannada-51gb-26gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=332374)
+- [Aadukalam &lpar;2010&rpar; Original Motion Picture Soundtrack - G.V. Prakash Kumar Musical - FLAC [16bit] | MP3 [320kbps|128kbps] - 207 MB | 72 MB | 35 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166586-aadukalam-2010-original-motion-picture-soundtrack-gv-prakash-kumar-musical-flac-16bit-mp3-320kbps128kbps-207-mb-72-mb-35-mb/&do=findComment&comment=332384)
+- [Green Lantern Beware My Power &lpar;2022&rpar; BluRay 5.1 Esubs - 2160p [HDR] | 1080p | 720p - 7 GB | 5 GB | 3 GB | 809 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166585-green-lantern-beware-my-power-2022-bluray-51-esubs-2160p-hdr-1080p-720p-7-gb-5-gb-3-gb-809-mb/&do=findComment&comment=332383)
+- [Loki Season 01 720p WEBRip Tamil English Direct Download / Watch Online](https://www.1tamilmv.pics/index.php?/forums/topic/166584-loki-season-01-720p-webrip-tamil-english-direct-download-watch-online/&do=findComment&comment=332382)
+- [Waat Laga Denge &lpar;From &quot;Liger &lpar;Telugu + Hindi&rpar;&quot;&rpar; - Vijay Deverakonda - 19 MB | 11 MB | 3 MB | 1 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166544-waat-laga-denge-from-liger-telugu-hindi-vijay-deverakonda-19-mb-11-mb-3-mb-1-mb/&do=findComment&comment=332381)
+- [Ramarao on Duty &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166563-ramarao-on-duty-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=332380)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
