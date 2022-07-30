@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DHOOL 2003 MOVIE COMPLETE VIDEO SONGS &lpar;AMAZON WBDL HD1080P WITH 5.1 DTS&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166593-dhool-2003-movie-complete-video-songs-amazon-wbdl-hd1080p-with-51-dts/&do=findComment&comment=332393)
+- [777 Charlie &lpar;2022&rpar; Multi Audio [Telugu Tamil Hindi Kannada] TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 10GB - 3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166398-777-charlie-2022-multi-audio-telugu-tamil-hindi-kannada-true-web-dl-1080p-720p-avc-hevc-10gb-3gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332392)
+- [Andala Rakshasi &lpar;2012&rpar; Telugu GPlay &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DTS + DD+5.1 &lpar;384Kbps&rpar;] E-Subs By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166592-andala-rakshasi-2012-telugu-gplay-music-video-album-1080p-web-hd-untouched-avc-dts-dd51-384kbps-e-subs-by-beast-uk/&do=findComment&comment=332391)
 - [Kattumarakaran &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166589-kattumarakaran-1995tamil480phdtvx264aac20-22gb-gdrive/&do=findComment&comment=332390)
 - [Naalu Policeum Nalla Irundha Oorum &lpar;2015&rpar; Tamil 1080p HD AVC x264 - AAC - 2.4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166591-naalu-policeum-nalla-irundha-oorum-2015-tamil-1080p-hd-avc-x264-aac-24gb/&do=findComment&comment=332389)
-- [Appu &lpar;2000&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.9GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166590-appu-2000tamil480phdtvx264aac20-19gb-gdrive/&do=findComment&comment=332388)
-- [Kattumarakaran &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166589-kattumarakaran-1995tamil480phdtvx264aac20-22gb-gdrive/&do=findComment&comment=332387)
-- [Black Panther: Wakanda Forever Prologue &lpar;2022&rpar; Hi-Fi Quality 16bit - FLAC - Various Artists -  62.18 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166588-black-panther-wakanda-forever-prologue-2022-hi-fi-quality-16bit-flac-various-artists-6218-mb/&do=findComment&comment=332386)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
