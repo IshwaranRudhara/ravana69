@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Iyarkai &lpar;2003&rpar; WEB - DL [1080p - Tamil - AAC ] - H.264 - 6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166645-iyarkai-2003-web-dl-1080p-tamil-aac-h264-6gb/&do=findComment&comment=332473)
+- [How To Train Your Husband &lpar; 2018 &rpar; WEB - DL [1080p - Tamil - AAC ] - H.264 - 4.6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166644-how-to-train-your-husband-2018-web-dl-1080p-tamil-aac-h264-46gb/&do=findComment&comment=332472)
+- [Operation Romeo &lpar; 2022 &rpar; NF WEB - DL [1080p - Hindi - DD5.1] - H.264 - 3GB - ESUB](https://www.1tamilmv.pics/index.php?/forums/topic/166643-operation-romeo-2022-nf-web-dl-1080p-hindi-dd51-h264-3gb-esub/&do=findComment&comment=332471)
 - [Singleu &lpar;From &quot;Poikkal Kuthirai&quot;&rpar; - G.V. Prakash - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 46 MB | 26 MB | 8 MB | 3 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166642-singleu-from-poikkal-kuthirai-gv-prakash-flac-24bit16bit-mp3-320kbps128kbps-46-mb-26-mb-8-mb-3-mb/&do=findComment&comment=332470)
 - [The Gray Man&lpar;2022&rpar;-1080P~Logan&#39;s Cut~Tamil 5.1~DTSHD&lpar;High Resolution&rpar;~&lpar;AVC&rpar;&lpar;GDRIVE&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166641-the-gray-man2022-1080p~logans-cut~tamil-51~dtshdhigh-resolution~avcgdrive/&do=findComment&comment=332469)
-- [Ndaakkippaattu &lpar;From &quot;Thallumaala&quot;&rpar;  - Muhsin Parari - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 34 MB | 16 MB | 6 MB | 3 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166640-ndaakkippaattu-from-thallumaala-muhsin-parari-flac-24bit16bit-mp3-320kbps128kbps-34-mb-16-mb-6-mb-3-mb/&do=findComment&comment=332468)
-- [PREMIUM QUALITY 4K 2160p 60FPS ULTRA UHD Songs/OTT Downloads/Clips/UHD Photos @TELEGRAM | UHD HUNTERYT](https://www.1tamilmv.pics/index.php?/forums/topic/166558-premium-quality-4k-2160p-60fps-ultra-uhd-songsott-downloadsclipsuhd-photos-telegram-uhd-hunteryt/&do=findComment&comment=332467)
-- [Jackie Chan Tamil Dubbed Movie Collections [Gdrive link] - [Tamil + Multi] -[53 movies]](https://www.1tamilmv.pics/index.php?/forums/topic/166639-jackie-chan-tamil-dubbed-movie-collections-gdrive-link-tamil-multi-53-movies/&do=findComment&comment=332466)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
