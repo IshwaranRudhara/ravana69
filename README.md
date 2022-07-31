@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [KANGALAL KAITHU SEI 2004 MOVIE VIDEO SONGS UPSCALED HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166680-kangalal-kaithu-sei-2004-movie-video-songs-upscaled-hd1080p-with-51-dts/&do=findComment&comment=332518)
+- [D Block &lpar;2022&rpar; 2160p Tamil TK WEB-DL HEVC DDP5.1 ATMOS 11GB [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166679-d-block-2022-2160p-tamil-tk-web-dl-hevc-ddp51-atmos-11gb-gdrive/&do=findComment&comment=332517)
 - [Ponni Nadhi &lpar;From &quot;Ponniyin Selvan Part - 1&quot;&rpar; &lpar;2022&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166657-ponni-nadhi-from-ponniyin-selvan-part-1-2022-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=332516)
-- [D Block &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - ATMOS - 448Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166676-d-block-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-atmos-448kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332515)
-- [D Block &lpar;2022&rpar; 720p AMZN WEB-DL HEVC DDP.5.1 ESub - 1.4GB [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166678-d-block-2022-720p-amzn-web-dl-hevc-ddp51-esub-14gb-gdrive/&do=findComment&comment=332514)
-- [D Block &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - ATMOS - 448Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166676-d-block-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-atmos-448kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332513)
-- [D Block &lpar;2022&rpar; 1080p Tamil SS WEB-DL H264 DD5.1 - 3.8 GB [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166677-d-block-2022-1080p-tamil-ss-web-dl-h264-dd51-38-gb-gdrive/&do=findComment&comment=332512)
+- [D Block &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps + 640Kbps&rpar; - 12GB - 8.8GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166676-d-block-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-atmos-448kbps-640kbps-12gb-88gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332515)
+- [D Block &lpar;2022&rpar; 720p,1080p AMZN WEB-DL HEVC DDP.5.1 ESub - 1.4GB 2.5GB [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166678-d-block-2022-720p1080p-amzn-web-dl-hevc-ddp51-esub-14gb-25gb-gdrive/&do=findComment&comment=332514)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
