@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Merupu Kalalu &lpar;1997&rpar; - Telugu - T-Series - SFCD 1-365 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A.R. Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166634-merupu-kalalu-1997-telugu-t-series-sfcd-1-365-true-mp3-441khz-16bit-320kbps-ar-rahman-musical/&do=findComment&comment=332457)
+- [Vikrant Rona &lpar;2022&rpar; Dual Audio [Telugu Kannada] Proper HQ S-Print - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166633-vikrant-rona-2022-dual-audio-telugu-kannada-proper-hq-s-print-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332456)
+- [Roja &lpar;1992&rpar; - Tamil - Lahari - LRCD 1004 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A.R. Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166632-roja-1992-tamil-lahari-lrcd-1004-true-mp3-441khz-16bit-320kbps-ar-rahman-musical/&do=findComment&comment=332455)
 - [Vikrant Rona &lpar;2022&rpar; Dual Audio [Hindi Tamil] Proper HQ S-Print - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166631-vikrant-rona-2022-dual-audio-hindi-tamil-proper-hq-s-print-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332454)
 - [Star Trek English 720p Complete Edition Download Link](https://www.1tamilmv.pics/index.php?/forums/topic/166630-star-trek-english-720p-complete-edition-download-link/&do=findComment&comment=332453)
-- [Tall Girl 1 and 2 HQ HDRip - 1080p - x264 - Original Audios - &lpar;DD+5.1 - 192Kbps&rpar; - [Tamil + Telugu + Hindi + Eng] - 1.4GB - ESub.mkv](https://www.1tamilmv.pics/index.php?/forums/topic/166629-tall-girl-1-and-2-hq-hdrip-1080p-x264-original-audios-dd51-192kbps-tamil-telugu-hindi-eng-14gb-esubmkv/&do=findComment&comment=332452)
-- [Texas Chainsaw Massacre &lpar;2022&rpar; HQ HDRip - 1080p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - [Tamil + Telugu + Hindi + English] - AAC - 1.1GB - ESub.mkv](https://www.1tamilmv.pics/index.php?/forums/topic/166628-texas%C2%A0chainsaw-massacre-2022%C2%A0hq-hdrip%C2%A0-1080p-x264-dd51-192kbps-tamil-telugu-hindi-english-aac-11gb%C2%A0-esubmkv/&do=findComment&comment=332451)
-- [Suzhal: The Vortex &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; HQ HDRip - 720p - x264 - AAC 2.0 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - Download Link](https://www.1tamilmv.pics/index.php?/forums/topic/166627-suzhal-the-vortex-2022-s01-ep01-08%C2%A0hq-hdrip-720p-x264-aac-20-tamil-%C2%A0telugu-hindi-malayalam-kannada-download-link/&do=findComment&comment=332450)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
