@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Guardians Of The Galaxy Duology &lpar;2014-2017&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166668-guardians-of-the-galaxy-duology-2014-2017-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332503)
-- [Vicky Daada &lpar;1989&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-5.5GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166667-vicky-daada-1989-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-55gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=332502)
-- [Iron Man Trilogy &lpar;2008-2013&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166666-iron-man-trilogy-2008-2013-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332501)
-- [Ponni Nadhi &lpar;From &quot;Ponniyin Selvan Part -1&quot;&rpar; [Original Motion Picture Soundtrack] - A.R. Rahman - M4A - 13 MB](https://www.1tamilmv.pics/index.php?/forums/topic/166665-ponni-nadhi-from-ponniyin-selvan-part-1-original-motion-picture-soundtrack-ar-rahman-m4a-13-mb/&do=findComment&comment=332500)
-- [Ponni Nadhi &lpar;From &quot;Ponniyin Selvan&quot;&rpar; &lpar;2022&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166657-ponni-nadhi-from-ponniyin-selvan-2022-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=332499)
+- [The Mummy Quadrilogy &lpar;1999-2017&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166673-the-mummy-quadrilogy-1999-2017-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332508)
+- [Titans Duology &lpar;2010-2012&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166672-titans-duology-2010-2012-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332507)
+- [Uzhaithu Vaazha Vendum &lpar;1988&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166671-uzhaithu-vaazha-vendum-1988tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=332506)
+- [🔥 Terminator Collection🔥 FULL HD](https://www.1tamilmv.pics/index.php?/forums/topic/166670-%F0%9F%94%A5-terminator-collection%F0%9F%94%A5-full-hd/&do=findComment&comment=332505)
+- [Titanic &lpar;1997&rpar; - BluRay - Original Audios - [Telugu + Tamil + Hindi + English] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166669-titanic-1997-bluray-original-audios-telugu-tamil-hindi-english-esub%C2%A0/&do=findComment&comment=332504)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
