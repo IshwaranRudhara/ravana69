@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Iyarkai &lpar;2003&rpar; WEB - DL [1080p - Tamil - AAC ] - H.264 - 6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166645-iyarkai-2003-web-dl-1080p-tamil-aac-h264-6gb/&do=findComment&comment=332543)
+- [RRR Climax Fight Scene 4k HEVC](https://www.1tamilmv.pics/index.php?/forums/topic/166699-rrr-climax-fight-scene-4k-hevc/&do=findComment&comment=332542)
 - [Bhool Bhulaiyaa 2 &lpar;2022&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; 4K WEB-HD UNTOUCHED - HEVC - [DD+5.1 &lpar;640Kbps&rpar;] By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166698-bhool-bhulaiyaa-2-2022-hindi-music-video-album-4k-web-hd-untouched-hevc-dd51-640kbps-by-beast-uk/&do=findComment&comment=332541)
 - [Akhanda Interval Fight Scene](https://www.1tamilmv.pics/index.php?/forums/topic/166697-akhanda-interval-fight-scene/&do=findComment&comment=332540)
 - [Pushpa Interval Fight Scene 4k](https://www.1tamilmv.pics/index.php?/forums/topic/166696-pushpa-interval-fight-scene-4k/&do=findComment&comment=332539)
-- [Vikram Interval Fight Scene](https://www.1tamilmv.pics/index.php?/forums/topic/166695-vikram-interval-fight-scene/&do=findComment&comment=332538)
-- [Vikram Interval Fight Scene](https://www.1tamilmv.pics/index.php?/forums/topic/166694-vikram-interval-fight-scene/&do=findComment&comment=332537)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
