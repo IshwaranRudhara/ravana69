@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Idhayam &lpar;1991&rpar;.Tamil.1080p.HDTV.x265.10Bit.DD2.0 - 3.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/104198-idhayam-1991tamil1080phdtvx26510bitdd20-37gb-gdrive/&do=findComment&comment=332578)
+- [Idhayam 1991 Tamil KTV HD 720p HDTV UNTOUCHED x264 AVC AAC 3.2GB [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/142491-idhayam-1991-tamil-ktv-hd-720p-hdtv-untouched-x264-avc-aac-32gb-google-drive/&do=findComment&comment=332577)
 - [Paper Rocket &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 2.2GB &amp; 1.4GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166583-paper-rocket-2022-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-22gb-14gb-x264-500mb-esub/&do=findComment&comment=332576)
 - [Arjun Gowda &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166705-arjun-gowda-2022-kannada-true-web-dl-1080p-720p-avc-3gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=332575)
 - [ATHIDI 2007 TELUGU MOVIE- SATHYAM EMITO VIDEO SONG UPSCALED HD1080P WITH &lpar;5.1 DTS AND 2.0 STEREO&rpar; AUDIO.](https://www.1tamilmv.pics/index.php?/forums/topic/166724-athidi-2007-telugu-movie-sathyam-emito-video-song-upscaled-hd1080p-with-51-dts-and-20-stereo-audio/&do=findComment&comment=332574)
-- [She &lpar;2022&rpar; S02 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi&rpar; - 3GB &amp; 1.8GB] - [x264 - 1GB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/164082-she-2022-s02-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-3gb-18gb-x264-1gb-esub/&do=findComment&comment=332569)
-- [Game of Thrones &lpar;S01-S08&rpar; 1080p 10bit BluRay x265 HEVC AAC7.1.MKV  110GB {G-DRIVE}](https://www.1tamilmv.pics/index.php?/forums/topic/166719-game-of-thrones-s01-s08-1080p-10bit-bluray-x265-hevc-aac71mkv-110gb-g-drive/&do=findComment&comment=332568)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
