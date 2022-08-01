@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ponni Nadhi &lpar;From &quot;Ponniyin Selvan Part - 1&quot;&rpar; &lpar;2022&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166657-ponni-nadhi-from-ponniyin-selvan-part-1-2022-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=332580)
+- [Superman And Lois &lpar;2021&rpar; S01 EP &lpar;01-15&rpar; HDRip - [720p - x264 - [Tamil &lpar;Fan Dub&rpar; + Eng] - 4.8GB | x264 - 2GB]](https://www.1tamilmv.pics/index.php?/forums/topic/166723-superman-and-lois-2021-s01-ep-01-15-hdrip-720p-x264-tamil-fan-dub-eng-48gb-x264-2gb/&do=findComment&comment=332579)
 - [Idhayam &lpar;1991&rpar;.Tamil.1080p.HDTV.x265.10Bit.DD2.0 - 3.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/104198-idhayam-1991tamil1080phdtvx26510bitdd20-37gb-gdrive/&do=findComment&comment=332578)
 - [Idhayam 1991 Tamil KTV HD 720p HDTV UNTOUCHED x264 AVC AAC 3.2GB [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/142491-idhayam-1991-tamil-ktv-hd-720p-hdtv-untouched-x264-avc-aac-32gb-google-drive/&do=findComment&comment=332577)
 - [Paper Rocket &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 2.2GB &amp; 1.4GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166583-paper-rocket-2022-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-22gb-14gb-x264-500mb-esub/&do=findComment&comment=332576)
-- [Arjun Gowda &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166705-arjun-gowda-2022-kannada-true-web-dl-1080p-720p-avc-3gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=332575)
-- [ATHIDI 2007 TELUGU MOVIE- SATHYAM EMITO VIDEO SONG UPSCALED HD1080P WITH &lpar;5.1 DTS AND 2.0 STEREO&rpar; AUDIO.](https://www.1tamilmv.pics/index.php?/forums/topic/166724-athidi-2007-telugu-movie-sathyam-emito-video-song-upscaled-hd1080p-with-51-dts-and-20-stereo-audio/&do=findComment&comment=332574)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
