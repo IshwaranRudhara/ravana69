@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chirugley &lpar;From &#39;Mirapakay&#39;&rpar; &lpar;2011&rpar; - BLU-RAY 1080p AVC DTS-HDMA 5.1 + Esub - BDRemux - 610MB - [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/166708-chirugley-from-mirapakay-2011-blu-ray-1080p-avc-dts-hdma-51-esub-bdremux-610mb-avatar-untoucheds/&do=findComment&comment=332556)
+- [Nava Vasantham &lpar;2007&rpar; Telugu ZEE5 TRUE WEBDL - [1080p-3.3GB / 720p-2.8GB / 576p-1.4GB / 480p-900MB / 360p-700MB / 240p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166707-nava-vasantham-2007-telugu-zee5-true-webdl-1080p-33gb-720p-28gb-576p-14gb-480p-900mb-360p-700mb-240p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=332555)
+- [Jai Ram &lpar;2004&rpar; Tamil JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.5GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks] - Requested](https://www.1tamilmv.pics/index.php?/forums/topic/166706-jai-ram-2004-tamil-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-15gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks-requested/&do=findComment&comment=332554)
+- [Salaga &lpar;2021&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166276-salaga-2021-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=332553)
 - [Arjun Gowda &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166705-arjun-gowda-2022-kannada-true-web-dl-1080p-720p-avc-3gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=332552)
-- [Arundhathi &lpar;2009&rpar; Telugu JC TRUE WEB-DL - [1080p-7GB-4.5GB-3.5GB / 720p-1.1GB / 480p-750MB / 360p-600MB / 240p-400MB] - AVC - AAC - SUNNXT DD+5.1 - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166704-arundhathi-2009-telugu-jc-true-web-dl-1080p-7gb-45gb-35gb-720p-11gb-480p-750mb-360p-600mb-240p-400mb-avc-aac-sunnxt-dd51-gdrivelinks/&do=findComment&comment=332551)
-- [Ante Sundaraniki &lpar;2022&rpar; Telugu NF TRUE WEB-DL - 4K HQ SDR - HEVC - UNTOUCHED - &lpar;DD+ 5.1 - 640Kbps &amp; AAC 2.0&rpar; - 20.9GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166703-ante-sundaraniki-2022-telugu-nf-true-web-dl-4k-hq-sdr-hevc-untouched-dd-51-640kbps-aac-20-209gb-esub/&do=findComment&comment=332550)
-- [Singam 3 &lpar;2017&rpar;Tamil WEB-DL DD 5.1 [2160p - 1080p - 720p - 480p ] &amp; [45GB - 7GB - 1GB - 666MB] ESub](https://www.1tamilmv.pics/index.php?/forums/topic/160145-singam-3-2017tamil-web-dl-dd-51-2160p-1080p-720p-480p-45gb-7gb-1gb-666mb-esub/&do=findComment&comment=332549)
-- [Transformers Complete 720p BDRip &lpar;Tamil+Telugu+Hindi+Eng&rpar; Download Link](https://www.1tamilmv.pics/index.php?/forums/topic/166702-transformers-complete-720p-bdrip-tamilteluguhindieng-download-link/&do=findComment&comment=332548)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
