@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bhool Bhulaiyaa 2 &lpar;2022&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; 4K WEB-HD UNTOUCHED - HEVC - [DD+5.1 &lpar;640Kbps&rpar;] By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166698-bhool-bhulaiyaa-2-2022-hindi-music-video-album-4k-web-hd-untouched-hevc-dd51-640kbps-by-beast-uk/&do=findComment&comment=332541)
+- [Akhanda Interval Fight Scene](https://www.1tamilmv.pics/index.php?/forums/topic/166697-akhanda-interval-fight-scene/&do=findComment&comment=332540)
+- [Pushpa Interval Fight Scene 4k](https://www.1tamilmv.pics/index.php?/forums/topic/166696-pushpa-interval-fight-scene-4k/&do=findComment&comment=332539)
+- [Vikram Interval Fight Scene](https://www.1tamilmv.pics/index.php?/forums/topic/166695-vikram-interval-fight-scene/&do=findComment&comment=332538)
 - [Vikram Interval Fight Scene](https://www.1tamilmv.pics/index.php?/forums/topic/166694-vikram-interval-fight-scene/&do=findComment&comment=332537)
-- [777 Charlie &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166394-777-charlie-2022-tamil-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332536)
-- [D Block &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps + 640Kbps&rpar; - 12GB - 8.8GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166676-d-block-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-atmos-448kbps-640kbps-12gb-88gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332535)
-- [D Block &lpar;2022&rpar; Tamil - HQ HDRip - 720p &amp;1080p - HEVC - x265 - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; Direct Download Link](https://www.1tamilmv.pics/index.php?/forums/topic/166693-d-block%C2%A02022-tamil-hq-hdrip-720p-1080p-%C2%A0hevc%C2%A0-%C2%A0x265%C2%A0-dd51-192kbps-aac-20-direct-download-link/&do=findComment&comment=332534)
-- [Mission Impossible Complete [720p - BDRip - [Tamil + Telugu + Hindi + Eng] - x264 - 1GB - ESubs] Telegram File](https://www.1tamilmv.pics/index.php?/forums/topic/166692-mission-impossible-complete-720p-bdrip-tamil-telugu-hindi-eng-x264-1gb-esubs-telegram-file/&do=findComment&comment=332533)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
