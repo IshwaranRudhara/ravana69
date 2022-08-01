@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Superman &amp; Lois S01 EP&lpar;01 - 15&rpar; 720p HD AVC - x264 - Tamil &lpar;Fan Dub&rpar; + Eng] - AAC - 9GB &amp; 1.4GB {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166716-superman-lois-s01-ep01-15-720p-hd-avc-x264-tamil-fan-dub-eng-aac-9gb-14gb-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332565)
-- [Tina Fight Scene in Vikram&lpar;Telugu&rpar; 60FPS](https://www.1tamilmv.pics/index.php?/forums/topic/166715-tina-fight-scene-in-vikramtelugu-60fps/&do=findComment&comment=332564)
-- [Phir Bhi Dil Hai Hindustani 2000 Hindi Full Movie Download | NF WEB-DL 1080p 720p 480p](https://www.1tamilmv.pics/index.php?/forums/topic/166714-phir-bhi-dil-hai-hindustani-2000-hindi-full-movie-download-nf-web-dl-1080p-720p-480p/&do=findComment&comment=332563)
-- [Aaru&lpar;2005&rpar;.720p.JIO.WEB-DL.H.264-SKS.mkv - 1.4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166713-aaru2005720pjioweb-dlh264-sksmkv-14gb/&do=findComment&comment=332562)
-- [Dear Comrade &lpar;2019&rpar; Tamil TRUE WEB-DL - [1080p  - 1.6GB &amp; 1.1GB] - [x264 - 700MB - 500MB - 400MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166691-dear-comrade-2019-tamil-true-web-dl-1080p-16gb-11gb-x264-700mb-500mb-400mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332561)
+- [Paper Rocket &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 2.2GB &amp; 1.4GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166583-paper-rocket-2022-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-22gb-14gb-x264-500mb-esub/&do=findComment&comment=332576)
+- [Arjun Gowda &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166705-arjun-gowda-2022-kannada-true-web-dl-1080p-720p-avc-3gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=332575)
+- [ATHIDI 2007 TELUGU MOVIE- SATHYAM EMITO VIDEO SONG UPSCALED HD1080P WITH &lpar;5.1 DTS AND 2.0 STEREO&rpar; AUDIO.](https://www.1tamilmv.pics/index.php?/forums/topic/166724-athidi-2007-telugu-movie-sathyam-emito-video-song-upscaled-hd1080p-with-51-dts-and-20-stereo-audio/&do=findComment&comment=332574)
+- [She &lpar;2022&rpar; S02 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi&rpar; - 3GB &amp; 1.8GB] - [x264 - 1GB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/164082-she-2022-s02-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-3gb-18gb-x264-1gb-esub/&do=findComment&comment=332569)
+- [Game of Thrones &lpar;S01-S08&rpar; 1080p 10bit BluRay x265 HEVC AAC7.1.MKV  110GB {G-DRIVE}](https://www.1tamilmv.pics/index.php?/forums/topic/166719-game-of-thrones-s01-s08-1080p-10bit-bluray-x265-hevc-aac71mkv-110gb-g-drive/&do=findComment&comment=332568)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
