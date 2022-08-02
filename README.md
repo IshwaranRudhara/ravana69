@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [F3 Fun And Frustration &lpar;2022&rpar; - Telugu Video Songs - 1080p - WEB-DL - DDP 5.1 &amp; DTS](https://www.1tamilmv.pics/index.php?/forums/topic/166805-f3-fun-and-frustration-2022-telugu-video-songs-1080p-web-dl-ddp-51-dts/&do=findComment&comment=332683)
 - [🔰GADDALAKONDA GANESH &lpar;2019&rpar; - &lpar;Telugu&rpar; - TRUE WEB-DL - &lpar;1080p&rpar; - AVC - [UNTOUCHED] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - [2.32GB]🔰](https://www.1tamilmv.pics/index.php?/forums/topic/166804-%F0%9F%94%B0gaddalakonda-ganesh-2019-telugu-true-web-dl-1080p-avc-untouched-dd51-192kbps-aac-20-232gb%F0%9F%94%B0/&do=findComment&comment=332682)
 - [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 2160p HDR10 IMAX WEBRip x265 10bit [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 4.9GB](https://www.1tamilmv.pics/index.php?/forums/topic/166803-benzmovies-avengers-endgame-2019-2160p-hdr10-imax-webrip-x265-10bit-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-49gb/&do=findComment&comment=332681)
 - [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 1080p DSNP WEB-DL x264 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Hin + Eng] Esubs Benz.mkv 4.9GB](https://www.1tamilmv.pics/index.php?/forums/topic/166802-benzmovies-avengers-endgame-2019-1080p-dsnp-web-dl-x264-dd-51-192kbps-tel-tam-hin-eng-esubs-benzmkv-49gb/&do=findComment&comment=332680)
 - [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 1080p BluRay x264 [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 3.3GB](https://www.1tamilmv.pics/index.php?/forums/topic/166801-benzmovies-avengers-endgame-2019-1080p-bluray-x264-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-33gb/&do=findComment&comment=332679)
-- [@Benzmovies - Avengers - Infinity War &lpar;2018&rpar; 1080p BluRay x264 [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 2.1GB](https://www.1tamilmv.pics/index.php?/forums/topic/166800-benzmovies-avengers-infinity-war-2018-1080p-bluray-x264-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-21gb/&do=findComment&comment=332678)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
