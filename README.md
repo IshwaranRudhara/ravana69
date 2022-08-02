@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [D BLOCK&lpar;2022&rpar;-1080P-Logan&#39;s Cut~Tamil DTSMA 5.1 &amp; Tamil DTS 5.1&lpar;GDRIVE&rpar;-AVC](https://www.1tamilmv.pics/index.php?/forums/topic/166753-d-block2022-1080p-logans-cut~tamil-dtsma-51-tamil-dts-51gdrive-avc/&do=findComment&comment=332614)
+- [Now You See Me Duology &lpar;2013-2016&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166728-now-you-see-me-duology-2013-2016-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332613)
 - [Papanasam&lpar;2015&rpar;.720.JIO.WEB-DL.H.264.Esub-SKS.mkv](https://www.1tamilmv.pics/index.php?/forums/topic/166752-papanasam2015720jioweb-dlh264esub-sksmkv/&do=findComment&comment=332612)
 - [Minions : The Rise of Gru &lpar;2022&rpar; English AMZN_WEB-DL 1080p DD5.1 x264- Showflix [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166751-%C2%A0minions-%C2%A0the-rise-of-gru-2022-english-amzn_web-dl-1080p-dd51-x264-showflix-gdrive/&do=findComment&comment=332611)
 - [Motu Patlu &amp; The Secret of Devil&#39;s Heart &lpar;2022&rpar;  - WEB-DL - 1080p - [Tamil + Telugu + Hindi] - DD2.0 - H.264 - 1.55GB](https://www.1tamilmv.pics/index.php?/forums/topic/166750-motu-patlu-the-secret-of-devils-heart-2022-web-dl-1080p-tamil-telugu-hindi-dd20-h264-155gb/&do=findComment&comment=332610)
-- [Angel&#39;s Last Mission Love &lpar;2019&rpar; S01 - MX - WEB-DL [1080p - Tamil - AAC2.0 - H.265 - 7GB]](https://www.1tamilmv.pics/index.php?/forums/topic/166749-angels-last-mission-love-2019-s01-mx-web-dl-1080p-tamil-aac20-h265-7gb/&do=findComment&comment=332609)
-- [The Watch &lpar;2021&rpar; MX - WEB-DL [1080p - Tamil - AAC2.0 - H.265 - 2GB]](https://www.1tamilmv.pics/index.php?/forums/topic/166748-the-watch-2021-mx-web-dl-1080p-tamil-aac20-h265-2gb/&do=findComment&comment=332608)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
