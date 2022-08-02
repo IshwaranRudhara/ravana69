@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [ASHOK 2006 MOVIE - OKA CHINNI NAVVE VIDEO SONG UPSCALED 1080P WITH 5.1 DTS.&lpar;REQUESTED&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166770-ashok-2006-movie-oka-chinni-navve-video-song-upscaled-1080p-with-51-dtsrequested/&do=findComment&comment=332648)
-- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166745-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub/&do=findComment&comment=332647)
-- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166745-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub/&do=findComment&comment=332646)
-- [Abhay.S03.18+ UnRated.1080p.ZEE5.WEB-DL.AAC2.0.H.264 - UNTOUCHED - GRIVE - 4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166769-abhays0318-unrated1080pzee5web-dlaac20h264-untouched-grive-4gb/&do=findComment&comment=332645)
-- [D Block &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps + 640Kbps&rpar; - 12GB - 8.8GB - 4.2GB -  3.9GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166768-d-block-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-atmos-448kbps-640kbps-12gb-88gb-42gb-39gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-esub-google-drive/&do=findComment&comment=332644)
+- [@Benzmovies - Jalsa.1080p.JIO.WEB-DL.H.264.Esub-Benz.mkv 9.0GB](https://www.1tamilmv.pics/index.php?/forums/topic/166788-benzmovies-jalsa1080pjioweb-dlh264esub-benzmkv-90gb/&do=findComment&comment=332666)
+- [@Benzmovies - Thuppakki &lpar;2012&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HD MA 5.1 &lpar;2665Kbps&rpar; + DTS 5.1 &lpar;1509Kbps&rpar; + DD5.1 &lpar;448Kbps&rpar;] + ESub - 14.5GB Benz.mkv 14.5GB](https://www.1tamilmv.pics/index.php?/forums/topic/166787-benzmovies-thuppakki-2012-telugu-blu-ray-1080p-avc-dts-hd-ma-51-2665kbps-dts-51-1509kbps-dd51-448kbps-esub-145gb-benzmkv-145gb/&do=findComment&comment=332665)
+- [@Benzmovies - Vedalam 2015 Tamil 1080p WeB-HD H.264 8.6GB Benz.mkv 8.6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166786-benzmovies-vedalam-2015-tamil-1080p-web-hd-h264-86gb-benzmkv-86gb/&do=findComment&comment=332664)
+- [@Benzmovies - Student No.1 &lpar;2001&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - AAC - 2.0 - 8GB Benz.mkv 8.2GB](https://www.1tamilmv.pics/index.php?/forums/topic/166785-benzmovies-student-no1-2001-telugu-true-web-dl-1080p-avc-untouched-aac-20-8gb-benzmkv-82gb/&do=findComment&comment=332663)
+- [Subhalagnam.1080p.JIO.WEB-DL.H.264-Benz.mkv](https://www.1tamilmv.pics/index.php?/forums/topic/166784-subhalagnam1080pjioweb-dlh264-benzmkv/&do=findComment&comment=332662)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
