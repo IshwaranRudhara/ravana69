@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Nuvvu Naaku Nachav &lpar;2001&rpar; Proper WEB-DL 1080p x264 AAC AVC 2.2GB.MKV [G-DRIVE]](https://www.1tamilmv.pics/index.php?/forums/topic/133501-nuvvu-naaku-nachav-2001-proper-web-dl-1080p-x264-aac-avc-22gbmkv-g-drive/&do=findComment&comment=332582)
-- [VARUTHA PADADHA VALIBAR SANGAM 2014 MOVIE VIDEO SONGS &lpar;AMAZON HD1080P&rpar; WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166725-varutha-padadha-valibar-sangam-2014-movie-video-songs-amazon-hd1080p-with-51-dts/&do=findComment&comment=332581)
-- [Ponni Nadhi &lpar;From &quot;Ponniyin Selvan Part - 1&quot;&rpar; &lpar;2022&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166657-ponni-nadhi-from-ponniyin-selvan-part-1-2022-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=332580)
-- [Superman And Lois &lpar;2021&rpar; S01 EP &lpar;01-15&rpar; HDRip - [720p - x264 - [Tamil &lpar;Fan Dub&rpar; + Eng] - 4.8GB | x264 - 2GB]](https://www.1tamilmv.pics/index.php?/forums/topic/166723-superman-and-lois-2021-s01-ep-01-15-hdrip-720p-x264-tamil-fan-dub-eng-48gb-x264-2gb/&do=findComment&comment=332579)
-- [Idhayam &lpar;1991&rpar;.Tamil.1080p.HDTV.x265.10Bit.DD2.0 - 3.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/104198-idhayam-1991tamil1080phdtvx26510bitdd20-37gb-gdrive/&do=findComment&comment=332578)
+- [Hulk Trilogy &lpar;2003-2010&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166730-hulk-trilogy-2003-2010-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332587)
+- [Ant-Man Duology &lpar;2015-2018&rpar; Blu-Ray - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p - x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166729-ant-man-duology-2015-2018-blu-ray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332586)
+- [Now You See Me Duology &lpar;2013-2016&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166728-now-you-see-me-duology-2013-2016-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332585)
+- [The Legend &lpar;2022&rpar; DVDScr Telugu Full Movie](https://www.1tamilmv.pics/index.php?/forums/topic/166727-the-legend-2022-dvdscr-telugu-full-movie%C2%A0/&do=findComment&comment=332584)
+- [Aashram | Season 3  ALL EPISODES  ALL LANGUAGES](https://www.1tamilmv.pics/index.php?/forums/topic/166726-aashram-season-3-all-episodes-all-languages/&do=findComment&comment=332583)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
