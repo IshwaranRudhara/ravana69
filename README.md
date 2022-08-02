@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [I &lpar;2015&rpar; 720p - AMZN - WEBRip - Tamil - ESub - 1.8GB](https://www.1tamilmv.pics/index.php?/forums/topic/166756-i-2015-720p-amzn-webrip-tamil-esub-18gb/&do=findComment&comment=332617)
+- [Minions: The Rise of Gru &lpar;2022&rpar; English Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166755-minions-the-rise-of-gru-2022-english-full-movie-watch-now-hq-for-free/&do=findComment&comment=332616)
+- [Tina Fight Scene in Vikram&lpar;Telugu&rpar; 60FPS](https://www.1tamilmv.pics/index.php?/forums/topic/166754-tina-fight-scene-in-vikramtelugu-60fps/&do=findComment&comment=332615)
 - [D BLOCK&lpar;2022&rpar;-1080P-Logan&#39;s Cut~Tamil DTSMA 5.1 &amp; Tamil DTS 5.1&lpar;GDRIVE&rpar;-AVC](https://www.1tamilmv.pics/index.php?/forums/topic/166753-d-block2022-1080p-logans-cut~tamil-dtsma-51-tamil-dts-51gdrive-avc/&do=findComment&comment=332614)
 - [Now You See Me Duology &lpar;2013-2016&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166728-now-you-see-me-duology-2013-2016-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332613)
-- [Papanasam&lpar;2015&rpar;.720.JIO.WEB-DL.H.264.Esub-SKS.mkv](https://www.1tamilmv.pics/index.php?/forums/topic/166752-papanasam2015720jioweb-dlh264esub-sksmkv/&do=findComment&comment=332612)
-- [Minions : The Rise of Gru &lpar;2022&rpar; English AMZN_WEB-DL 1080p DD5.1 x264- Showflix [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166751-%C2%A0minions-%C2%A0the-rise-of-gru-2022-english-amzn_web-dl-1080p-dd51-x264-showflix-gdrive/&do=findComment&comment=332611)
-- [Motu Patlu &amp; The Secret of Devil&#39;s Heart &lpar;2022&rpar;  - WEB-DL - 1080p - [Tamil + Telugu + Hindi] - DD2.0 - H.264 - 1.55GB](https://www.1tamilmv.pics/index.php?/forums/topic/166750-motu-patlu-the-secret-of-devils-heart-2022-web-dl-1080p-tamil-telugu-hindi-dd20-h264-155gb/&do=findComment&comment=332610)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
