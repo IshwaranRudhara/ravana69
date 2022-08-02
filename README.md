@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [@Benzmovies - Jalsa.1080p.JIO.WEB-DL.H.264.Esub-Benz.mkv 9.0GB](https://www.1tamilmv.pics/index.php?/forums/topic/166788-benzmovies-jalsa1080pjioweb-dlh264esub-benzmkv-90gb/&do=findComment&comment=332666)
-- [@Benzmovies - Thuppakki &lpar;2012&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HD MA 5.1 &lpar;2665Kbps&rpar; + DTS 5.1 &lpar;1509Kbps&rpar; + DD5.1 &lpar;448Kbps&rpar;] + ESub - 14.5GB Benz.mkv 14.5GB](https://www.1tamilmv.pics/index.php?/forums/topic/166787-benzmovies-thuppakki-2012-telugu-blu-ray-1080p-avc-dts-hd-ma-51-2665kbps-dts-51-1509kbps-dd51-448kbps-esub-145gb-benzmkv-145gb/&do=findComment&comment=332665)
-- [@Benzmovies - Vedalam 2015 Tamil 1080p WeB-HD H.264 8.6GB Benz.mkv 8.6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166786-benzmovies-vedalam-2015-tamil-1080p-web-hd-h264-86gb-benzmkv-86gb/&do=findComment&comment=332664)
-- [@Benzmovies - Student No.1 &lpar;2001&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - AAC - 2.0 - 8GB Benz.mkv 8.2GB](https://www.1tamilmv.pics/index.php?/forums/topic/166785-benzmovies-student-no1-2001-telugu-true-web-dl-1080p-avc-untouched-aac-20-8gb-benzmkv-82gb/&do=findComment&comment=332663)
-- [Subhalagnam.1080p.JIO.WEB-DL.H.264-Benz.mkv](https://www.1tamilmv.pics/index.php?/forums/topic/166784-subhalagnam1080pjioweb-dlh264-benzmkv/&do=findComment&comment=332662)
+- [🔰GADDALAKONDA GANESH &lpar;2019&rpar; - &lpar;Telugu&rpar; - TRUE WEB-DL - &lpar;1080p&rpar; - AVC - [UNTOUCHED] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - [2.32GB]🔰](https://www.1tamilmv.pics/index.php?/forums/topic/166804-%F0%9F%94%B0gaddalakonda-ganesh-2019-telugu-true-web-dl-1080p-avc-untouched-dd51-192kbps-aac-20-232gb%F0%9F%94%B0/&do=findComment&comment=332682)
+- [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 2160p HDR10 IMAX WEBRip x265 10bit [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 4.9GB](https://www.1tamilmv.pics/index.php?/forums/topic/166803-benzmovies-avengers-endgame-2019-2160p-hdr10-imax-webrip-x265-10bit-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-49gb/&do=findComment&comment=332681)
+- [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 1080p DSNP WEB-DL x264 &lpar;DD+ 5.1 - 192Kbps&rpar; [Tel + Tam + Hin + Eng] Esubs Benz.mkv 4.9GB](https://www.1tamilmv.pics/index.php?/forums/topic/166802-benzmovies-avengers-endgame-2019-1080p-dsnp-web-dl-x264-dd-51-192kbps-tel-tam-hin-eng-esubs-benzmkv-49gb/&do=findComment&comment=332680)
+- [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 1080p BluRay x264 [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 3.3GB](https://www.1tamilmv.pics/index.php?/forums/topic/166801-benzmovies-avengers-endgame-2019-1080p-bluray-x264-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-33gb/&do=findComment&comment=332679)
+- [@Benzmovies - Avengers - Infinity War &lpar;2018&rpar; 1080p BluRay x264 [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 2.1GB](https://www.1tamilmv.pics/index.php?/forums/topic/166800-benzmovies-avengers-infinity-war-2018-1080p-bluray-x264-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-21gb/&do=findComment&comment=332678)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
