@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [@Benzmovies - Thuppakki &lpar;2012&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HD MA 5.1 &lpar;2665Kbps&rpar; + DTS 5.1 &lpar;1509Kbps&rpar; + DD5.1 &lpar;448Kbps&rpar;] + ESub - 14.5GB Benz.mkv 14.5GB](https://www.1tamilmv.pics/index.php?/forums/topic/166787-benzmovies-thuppakki-2012-telugu-blu-ray-1080p-avc-dts-hd-ma-51-2665kbps-dts-51-1509kbps-dd51-448kbps-esub-145gb-benzmkv-145gb/&do=findComment&comment=332687)
+- [F3 Fun And Frustration &lpar;2022&rpar; - Telugu Video Songs - 1080p - WEB-DL - DDP 5.1 &amp; DTS](https://www.1tamilmv.pics/index.php?/forums/topic/166805-f3-fun-and-frustration-2022-telugu-video-songs-1080p-web-dl-ddp-51-dts/&do=findComment&comment=332686)
 - [18+ Tawa Garam &lpar;2022&rpar; S01 Hindi ULLU WEB Series](https://www.1tamilmv.pics/index.php?/forums/topic/166807-18-tawa-garam-2022-s01-hindi-ullu-web-series/&do=findComment&comment=332685)
 - [ANBU 2003 MOVIE REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166806-anbu-2003-movie-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=332684)
 - [F3 Fun And Frustration &lpar;2022&rpar; - Telugu Video Songs - 1080p - WEB-DL - DDP 5.1 &amp; DTS](https://www.1tamilmv.pics/index.php?/forums/topic/166805-f3-fun-and-frustration-2022-telugu-video-songs-1080p-web-dl-ddp-51-dts/&do=findComment&comment=332683)
-- [🔰GADDALAKONDA GANESH &lpar;2019&rpar; - &lpar;Telugu&rpar; - TRUE WEB-DL - &lpar;1080p&rpar; - AVC - [UNTOUCHED] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - [2.32GB]🔰](https://www.1tamilmv.pics/index.php?/forums/topic/166804-%F0%9F%94%B0gaddalakonda-ganesh-2019-telugu-true-web-dl-1080p-avc-untouched-dd51-192kbps-aac-20-232gb%F0%9F%94%B0/&do=findComment&comment=332682)
-- [@Benzmovies - Avengers - Endgame &lpar;2019&rpar; 2160p HDR10 IMAX WEBRip x265 10bit [Telugu &lpar;Org DSNP DD+ 5.1 - 192Kbps&rpar; + English] ESubs Benz.mkv 4.9GB](https://www.1tamilmv.pics/index.php?/forums/topic/166803-benzmovies-avengers-endgame-2019-2160p-hdr10-imax-webrip-x265-10bit-telugu-org-dsnp-dd-51-192kbps-english-esubs-benzmkv-49gb/&do=findComment&comment=332681)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
