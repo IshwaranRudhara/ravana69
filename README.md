@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Seethanam &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166732-seethanam-1995tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=332621)
+- [Sivaji &lpar;2007&rpar; BluRay - 720p - x264 - Tamil - 1.5GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166757-sivaji-2007-bluray-720p-x264-tamil-15gb-esub/&do=findComment&comment=332620)
+- [Viy - Forbidden Empire &lpar;2014&rpar; &lpar;HD + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166709-viy-forbidden-empire-2014-hd-original-audio-1080p-720p-x264-tamil-eng-22gb-11gb-x264-tamil-400mb-esub/&do=findComment&comment=332619)
+- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166745-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub/&do=findComment&comment=332618)
 - [I &lpar;2015&rpar; 720p - AMZN - WEBRip - Tamil - ESub - 1.8GB](https://www.1tamilmv.pics/index.php?/forums/topic/166756-i-2015-720p-amzn-webrip-tamil-esub-18gb/&do=findComment&comment=332617)
-- [Minions: The Rise of Gru &lpar;2022&rpar; English Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166755-minions-the-rise-of-gru-2022-english-full-movie-watch-now-hq-for-free/&do=findComment&comment=332616)
-- [Tina Fight Scene in Vikram&lpar;Telugu&rpar; 60FPS](https://www.1tamilmv.pics/index.php?/forums/topic/166754-tina-fight-scene-in-vikramtelugu-60fps/&do=findComment&comment=332615)
-- [D BLOCK&lpar;2022&rpar;-1080P-Logan&#39;s Cut~Tamil DTSMA 5.1 &amp; Tamil DTS 5.1&lpar;GDRIVE&rpar;-AVC](https://www.1tamilmv.pics/index.php?/forums/topic/166753-d-block2022-1080p-logans-cut~tamil-dtsma-51-tamil-dts-51gdrive-avc/&do=findComment&comment=332614)
-- [Now You See Me Duology &lpar;2013-2016&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/166728-now-you-see-me-duology-2013-2016-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=332613)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
