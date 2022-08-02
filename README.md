@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Game of Thrones &lpar;S01-S08&rpar; 1080p 10bit BluRay x265 HEVC AAC7.1.MKV  110GB {G-DRIVE}](https://www.1tamilmv.pics/index.php?/forums/topic/166719-game-of-thrones-s01-s08-1080p-10bit-bluray-x265-hevc-aac71mkv-110gb-g-drive/&do=findComment&comment=332637)
-- [Rangbaaz Darr Ki Rajneeti &lpar;2022&rpar; S01&lpar;E01-07&rpar; 1080p Multi [TAM + TEL + HIN] ZEE5 WEB-DL DD+5.1 H264  3.5GB - [GDRIVE]](https://www.1tamilmv.pics/index.php?/forums/topic/166763-rangbaaz-darr-ki-rajneeti-2022-s01e01-07-1080p-multi-tam-tel-hin-zee5-web-dl-dd51-h264-35gb-gdrive/&do=findComment&comment=332636)
-- [GHAJINI &lpar;2005&rpar;.TELUGU DUBBED.1080p.Bluray.x265 AAC - [5.90GB]](https://www.1tamilmv.pics/index.php?/forums/topic/84931-ghajini-2005telugu-dubbed1080pblurayx265-aac-590gb/&do=findComment&comment=332635)
-- [Idiot &lpar;2002&rpar; Telugu AMZN TRUE WEB-DL - [1080p-9.5GB-5GB-2.5GB / 720p-1.4GB / 576p-700MB / 480p-400MB] - AVC - [DD+2.0 - 224kbps] - Esubs - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166762-idiot-2002-telugu-amzn-true-web-dl-1080p-95gb-5gb-25gb-720p-14gb-576p-700mb-480p-400mb-avc-dd20-224kbps-esubs-gdrivelinks/&do=findComment&comment=332634)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=332633)
+- [ASHOK 2006 MOVIE - OKA CHINNI NAVVE VIDEO SONG UPSCALED 1080P WITH 5.1 DTS.&lpar;REQUESTED&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166770-ashok-2006-movie-oka-chinni-navve-video-song-upscaled-1080p-with-51-dtsrequested/&do=findComment&comment=332648)
+- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166745-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub/&do=findComment&comment=332647)
+- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166745-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub/&do=findComment&comment=332646)
+- [Abhay.S03.18+ UnRated.1080p.ZEE5.WEB-DL.AAC2.0.H.264 - UNTOUCHED - GRIVE - 4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166769-abhays0318-unrated1080pzee5web-dlaac20h264-untouched-grive-4gb/&do=findComment&comment=332645)
+- [D Block &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps + 640Kbps&rpar; - 12GB - 8.8GB - 4.2GB -  3.9GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166768-d-block-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-atmos-448kbps-640kbps-12gb-88gb-42gb-39gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-esub-google-drive/&do=findComment&comment=332644)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
