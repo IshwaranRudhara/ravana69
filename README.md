@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [GHAJINI &lpar;2005&rpar;.TELUGU DUBBED.1080p.Bluray.x265 AAC - [5.90GB]](https://www.1tamilmv.pics/index.php?/forums/topic/84931-ghajini-2005telugu-dubbed1080pblurayx265-aac-590gb/&do=findComment&comment=332624)
+- [Perazhagan &lpar;2004&rpar; Tamil 1080p WEB-DL DD 5.1 &lpar;192kbps&rpar; - [2.3GB] [GDRIVE]](https://www.1tamilmv.pics/index.php?/forums/topic/137906-perazhagan-2004-tamil-1080p-web-dl-dd-51-192kbps-23gb-gdrive/&do=findComment&comment=332623)
+- [Love Story &lpar;Prematheeram&rpar; &lpar;2021&rpar; FINAL VERSION Dual Telugu+Malayalam &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;384Kbps&rpar; - Malayalam DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166653-love-story-prematheeram-2021-final-version-dual-telugumalayalam-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-384kbps-malayalam-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=332622)
 - [Seethanam &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166732-seethanam-1995tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=332621)
 - [Sivaji &lpar;2007&rpar; BluRay - 720p - x264 - Tamil - 1.5GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166757-sivaji-2007-bluray-720p-x264-tamil-15gb-esub/&do=findComment&comment=332620)
-- [Viy - Forbidden Empire &lpar;2014&rpar; &lpar;HD + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166709-viy-forbidden-empire-2014-hd-original-audio-1080p-720p-x264-tamil-eng-22gb-11gb-x264-tamil-400mb-esub/&do=findComment&comment=332619)
-- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166745-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub/&do=findComment&comment=332618)
-- [I &lpar;2015&rpar; 720p - AMZN - WEBRip - Tamil - ESub - 1.8GB](https://www.1tamilmv.pics/index.php?/forums/topic/166756-i-2015-720p-amzn-webrip-tamil-esub-18gb/&do=findComment&comment=332617)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
