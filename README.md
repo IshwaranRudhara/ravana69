@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Minions: The Rise of Gru &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 850MB - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166760-minions-the-rise-of-gru-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-850mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332627)
+- [Rangbaaz : Darr Ki Rajneeti &lpar;2022&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi&rpar; - 3.5GB &amp; 1.4GB] - [x264 - 750MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166759-rangbaaz-darr-ki-rajneeti-2022-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-35gb-14gb-x264-750mb-esub/&do=findComment&comment=332626)
+- [Superman And Lois &lpar;2022&rpar; S02 EP &lpar;01-13&rpar; HDRip -720p - x264 - [Tamil &lpar;Fan Dub&rpar; + Eng] - 3.8GB {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166758-superman-and-lois-2022-s02-ep-01-13-hdrip-720p-x264-tamil-fan-dub-eng-38gb-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332625)
 - [GHAJINI &lpar;2005&rpar;.TELUGU DUBBED.1080p.Bluray.x265 AAC - [5.90GB]](https://www.1tamilmv.pics/index.php?/forums/topic/84931-ghajini-2005telugu-dubbed1080pblurayx265-aac-590gb/&do=findComment&comment=332624)
 - [Perazhagan &lpar;2004&rpar; Tamil 1080p WEB-DL DD 5.1 &lpar;192kbps&rpar; - [2.3GB] [GDRIVE]](https://www.1tamilmv.pics/index.php?/forums/topic/137906-perazhagan-2004-tamil-1080p-web-dl-dd-51-192kbps-23gb-gdrive/&do=findComment&comment=332623)
-- [Love Story &lpar;Prematheeram&rpar; &lpar;2021&rpar; FINAL VERSION Dual Telugu+Malayalam &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;384Kbps&rpar; - Malayalam DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166653-love-story-prematheeram-2021-final-version-dual-telugumalayalam-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-384kbps-malayalam-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=332622)
-- [Seethanam &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166732-seethanam-1995tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=332621)
-- [Sivaji &lpar;2007&rpar; BluRay - 720p - x264 - Tamil - 1.5GB - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166757-sivaji-2007-bluray-720p-x264-tamil-15gb-esub/&do=findComment&comment=332620)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
