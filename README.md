@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Viruman &lpar;2022&rpar; - YSR - DD5.1 640Kbps + DTSHDMA 5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; - 472MB &lpar;All Songs&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166846-viruman-2022-ysr-dd51-640kbps-dtshdma-51-lossless-24bit-flac-upmix-472mb-all-songs/&do=findComment&comment=332751)
-- [18+ Tawa Garam &lpar;2022&rpar; S01 Hindi ULLU WEB Series](https://www.1tamilmv.pics/index.php?/forums/topic/166807-18-tawa-garam-2022-s01-hindi-ullu-web-series/&do=findComment&comment=332750)
-- [Viruman &lpar;2022&rpar; Tamil Trailer &amp; Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Yuvan Shankar Raja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166844-viruman-2022-tamil-trailer-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-yuvan-shankar-raja-musical/&do=findComment&comment=332749)
-- [The Terminal List &lpar;2022&rpar; Complete S01 Merged All Episodes In One File AMZN WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada] | 1080p, 720p, 480p | HEVC | DDP 5.1 | MSub [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166845-the-terminal-list-2022-complete-s01-merged-all-episodes-in-one-file-amzn-web-dl-telugu-tamil-hindi-malayalam-kannada-1080p-720p-480p-hevc-ddp-51-msub-google-drive/&do=findComment&comment=332748)
-- [Viruman &lpar;2022&rpar; Tamil Trailer &amp; Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Yuvan Shankar Raja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166844-viruman-2022-tamil-trailer-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-yuvan-shankar-raja-musical/&do=findComment&comment=332747)
+- [[Gdrive] Dhammu [2012] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166854-gdrive-dhammu-2012-dual-audio-hindi-telugu/&do=findComment&comment=332762)
+- [[Gdrive Links] Baadshah [2013] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166853-gdrive-links-baadshah-2013-dual-audio-hindi-telugu/&do=findComment&comment=332761)
+- [[Gdrive Links] Ramayya Vastavayya [2013] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166852-gdrive-links-ramayya-vastavayya-2013-dual-audio-hindi-telugu/&do=findComment&comment=332760)
+- [[Gdrive Links] Rabhasa [2014] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166851-gdrive-links-rabhasa-2014-dual-audio-hindi-telugu/&do=findComment&comment=332759)
+- [Lightyear &lpar;2022&rpar; &lpar;UHD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 7.9GB - 3.1GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166850-lightyear-2022-uhd-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-79gb-31gb-14gb-x264-tam-tel-hin-mal-500mb-esub/&do=findComment&comment=332758)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
