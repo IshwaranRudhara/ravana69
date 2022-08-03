@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Viruman &lpar;2022&rpar; - YSR - DD5.1 640Kbps + DTSHDMA 5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; - 472MB &lpar;All Songs&rpar;](https://www.1tamilmv.pics/index.php?/forums/topic/166846-viruman-2022-ysr-dd51-640kbps-dtshdma-51-lossless-24bit-flac-upmix-472mb-all-songs/&do=findComment&comment=332751)
+- [18+ Tawa Garam &lpar;2022&rpar; S01 Hindi ULLU WEB Series](https://www.1tamilmv.pics/index.php?/forums/topic/166807-18-tawa-garam-2022-s01-hindi-ullu-web-series/&do=findComment&comment=332750)
 - [Viruman &lpar;2022&rpar; Tamil Trailer &amp; Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Yuvan Shankar Raja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166844-viruman-2022-tamil-trailer-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-yuvan-shankar-raja-musical/&do=findComment&comment=332749)
 - [The Terminal List &lpar;2022&rpar; Complete S01 Merged All Episodes In One File AMZN WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada] | 1080p, 720p, 480p | HEVC | DDP 5.1 | MSub [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166845-the-terminal-list-2022-complete-s01-merged-all-episodes-in-one-file-amzn-web-dl-telugu-tamil-hindi-malayalam-kannada-1080p-720p-480p-hevc-ddp-51-msub-google-drive/&do=findComment&comment=332748)
 - [Viruman &lpar;2022&rpar; Tamil Trailer &amp; Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Yuvan Shankar Raja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166844-viruman-2022-tamil-trailer-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-yuvan-shankar-raja-musical/&do=findComment&comment=332747)
-- [Madras Mappillai [Gunturodu] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 850MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166843-madras-mappillai-gunturodu-2022-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332746)
-- [Lightyear &lpar;2022&rpar; DSNP WEB-DL - [4k-2160p-8GB / 1080p-5GB-3GB-1.8GB / 720p-1.8GB-1.3GB / 480p-500MB] - x265/x265 - &lpar;DD+ 5.1 - 192Kbps&rpar; - [Tel + Tam + Hin + Mal + Eng] - MSub - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166842-lightyear-2022-dsnp-web-dl-4k-2160p-8gb-1080p-5gb-3gb-18gb-720p-18gb-13gb-480p-500mb-x265x265-dd-51-192kbps-tel-tam-hin-mal-eng-msub-gdrivelinks/&do=findComment&comment=332745)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
