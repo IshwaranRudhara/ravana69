@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Abhay.S03.18+ UnRated.1080p.ZEE5.WEB-DL.AAC2.0.H.264 - UNTOUCHED - GRIVE - 4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166769-abhays0318-unrated1080pzee5web-dlaac20h264-untouched-grive-4gb/&do=findComment&comment=332771)
+- [18+ UnRated A Bad Moms Christmas 2017 BluRay 720p x265 HEVC 10bit Hindi English AAC 5.1 ESub - UNTOUCHED - 850MB - GRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166862-18-unrated-a-bad-moms-christmas-2017-bluray-720p-x265-hevc-10bit-hindi-english-aac-51-esub-untouched-850mb-grive/&do=findComment&comment=332770)
+- [Aparichitudu &lpar;2005&rpar; - &lpar;Music Video Album&rpar; - TRUE WEB-DL - AMZN - 1080p - DD+5.1 - Esubs - Exclusive](https://www.1tamilmv.pics/index.php?/forums/topic/166861-aparichitudu-2005-music-video-album-true-web-dl-amzn-1080p-dd51-esubs-exclusive/&do=findComment&comment=332769)
 - [BHEEMA &lpar;2008&rpar; Complete Music Video Album - H264 - 1080p - DTS + DD - 5.1 - Original - [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/166860-bheema-2008-complete-music-video-album-h264-1080p-dts-dd-51-original-avatar-untoucheds/&do=findComment&comment=332768)
-- [Kaduva &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 640Kbps&rpar; - 6GB - 3.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166859-kaduva-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-34gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332767)
-- [Money Plane &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 900MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166858-money-plane-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-900mb-x264-tam-tel-hin-400mb-esub-google-drive/&do=findComment&comment=332766)
-- [[Gdrive Links] Sakthi [2011] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166855-gdrive-links-sakthi-2011-dual-audio-hindi-telugu/&do=findComment&comment=332763)
-- [[Gdrive] Dhammu [2012] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166854-gdrive-dhammu-2012-dual-audio-hindi-telugu/&do=findComment&comment=332762)
+- [Kaduva &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 640Kbps&rpar; - 10GB - 3.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166859-kaduva-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-10gb-34gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332767)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
