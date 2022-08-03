@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [🔆 SPY x FAMILY &lpar; 2022  &rpar;  , season 1 ,  COMPLETE COLLECTION , TORRENT DOWNLOAD ,  NETFLIX series with Direct file [ Japnese and ENGLISH ] 🔆](https://www.1tamilmv.pics/index.php?/forums/topic/166840-%F0%9F%94%86-spy-x-family-2022-season-1-complete-collection-torrent-download-netflix-series-with-direct-file-japnese-and-english-%F0%9F%94%86/&do=findComment&comment=332742)
+- [Magadheera &lpar;2009&rpar;.1080p.BluRay.x265.10Bit.AAC5.1.ESub - 6.8GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/87805-magadheera-20091080pblurayx26510bitaac51esub-68gb-gdrive/&do=findComment&comment=332741)
+- [Lightyear &lpar;2022&rpar; &lpar;UHD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 7.9GB - 3.1GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166820-lightyear-2022-uhd-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-79gb-31gb-14gb-x264-tam-tel-hin-mal-500mb-esub/&do=findComment&comment=332740)
 - [Kuselan &lpar;2008&rpar; WEB-DL - [2160p &lpar;4k&rpar; - Tamil - DD5.1 - x264 - 8GB]](https://www.1tamilmv.pics/index.php?/forums/topic/166833-kuselan-2008-web-dl-2160p-4k-tamil-dd51-x264-8gb/&do=findComment&comment=332739)
 - [Pandavar Bhoomi &lpar;2001&rpar; WEB-DL - 1080P - Tamil - AAC - x264 - 7GB](https://www.1tamilmv.pics/index.php?/forums/topic/166839-pandavar-bhoomi-2001-web-dl-1080p-tamil-aac-x264-7gb/&do=findComment&comment=332738)
-- [Kovil &lpar;2003&rpar; WEB-DL - 1080P - Tamil - AAC - x264 - 6GB](https://www.1tamilmv.pics/index.php?/forums/topic/166838-kovil-2003-web-dl-1080p-tamil-aac-x264-6gb/&do=findComment&comment=332737)
-- [Lightyear &lpar;2022&rpar; &lpar;UHD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 8GB - 3.1GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 500MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166837-lightyear-2022-uhd-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-8gb-31gb-14gb-x264-tam-tel-hin-mal-500mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332736)
-- [Only For Singles &lpar;2020&rpar; S01 - WEB-DL - 1080p - Tamil - AAC - x264 - 12GB](https://www.1tamilmv.pics/index.php?/forums/topic/166836-only-for-singles-2020-s01-web-dl-1080p-tamil-aac-x264-12gb/&do=findComment&comment=332735)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
