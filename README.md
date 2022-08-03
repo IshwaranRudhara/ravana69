@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BHEEMA &lpar;2008&rpar; Complete Music Video Album - H264 - 1080p - DTS + DD - 5.1 - Original - [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/166860-bheema-2008-complete-music-video-album-h264-1080p-dts-dd-51-original-avatar-untoucheds/&do=findComment&comment=332768)
+- [Kaduva &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 640Kbps&rpar; - 6GB - 3.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166859-kaduva-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-34gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332767)
+- [Money Plane &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 900MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166858-money-plane-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-900mb-x264-tam-tel-hin-400mb-esub-google-drive/&do=findComment&comment=332766)
+- [[Gdrive Links] Sakthi [2011] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166855-gdrive-links-sakthi-2011-dual-audio-hindi-telugu/&do=findComment&comment=332763)
 - [[Gdrive] Dhammu [2012] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166854-gdrive-dhammu-2012-dual-audio-hindi-telugu/&do=findComment&comment=332762)
-- [[Gdrive Links] Baadshah [2013] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166853-gdrive-links-baadshah-2013-dual-audio-hindi-telugu/&do=findComment&comment=332761)
-- [[Gdrive Links] Ramayya Vastavayya [2013] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166852-gdrive-links-ramayya-vastavayya-2013-dual-audio-hindi-telugu/&do=findComment&comment=332760)
-- [[Gdrive Links] Rabhasa [2014] Dual Audio [Hindi Telugu]](https://www.1tamilmv.pics/index.php?/forums/topic/166851-gdrive-links-rabhasa-2014-dual-audio-hindi-telugu/&do=findComment&comment=332759)
-- [Lightyear &lpar;2022&rpar; &lpar;UHD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 7.9GB - 3.1GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166850-lightyear-2022-uhd-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-79gb-31gb-14gb-x264-tam-tel-hin-mal-500mb-esub/&do=findComment&comment=332758)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
