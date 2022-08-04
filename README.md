@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aavasavyuham &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Telugu + Tamil + Hindi + Malayalam&rpar; - 3.7GB &amp; 1.4GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166866-aavasavyuham-2022-true-web-dl-1080p-720p-avc-telugu-tamil-hindi-malayalam-37gb-14gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332775)
+- [Hello Mini &lpar;2019&rpar; - S02E&lpar;01-10&rpar; - Tamil 1080p MX WEB-DL H x264 [1GB] [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166865-hello-mini-2019-s02e01-10-tamil-1080p-mx-web-dl-h-x264-1gb-gdrive/&do=findComment&comment=332774)
+- [Kaduva &lpar;2022&rpar; Malayalam 1080p,720p &amp; 480p AMZN WebRip DDP5.1 H.264 [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166864-kaduva-2022-malayalam-1080p720p-480p-amzn-webrip-ddp51-h264%C2%A0gdrive/&do=findComment&comment=332773)
+- [Aavasavyuham : The Arbit Documentation of an Amphibian Hunt &lpar;2022&rpar; [Tam + Tel + Hin + Mal] 1080p,720p &amp; 360p SONYLIV WEB-DL AAC2.0.H.264 [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166863-%C2%A0aavasavyuham%C2%A0-the-arbit-documentation-of-an-amphibian-hunt-2022-tam-tel-hin-mal-1080p720p-360p-sonyliv-web-dl-aac20h264-gdrive/&do=findComment&comment=332772)
 - [Abhay.S03.18+ UnRated.1080p.ZEE5.WEB-DL.AAC2.0.H.264 - UNTOUCHED - GRIVE - 4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166769-abhays0318-unrated1080pzee5web-dlaac20h264-untouched-grive-4gb/&do=findComment&comment=332771)
-- [18+ UnRated A Bad Moms Christmas 2017 BluRay 720p x265 HEVC 10bit Hindi English AAC 5.1 ESub - UNTOUCHED - 850MB - GRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/166862-18-unrated-a-bad-moms-christmas-2017-bluray-720p-x265-hevc-10bit-hindi-english-aac-51-esub-untouched-850mb-grive/&do=findComment&comment=332770)
-- [Aparichitudu &lpar;2005&rpar; - &lpar;Music Video Album&rpar; - TRUE WEB-DL - AMZN - 1080p - DD+5.1 - Esubs - Exclusive](https://www.1tamilmv.pics/index.php?/forums/topic/166861-aparichitudu-2005-music-video-album-true-web-dl-amzn-1080p-dd51-esubs-exclusive/&do=findComment&comment=332769)
-- [BHEEMA &lpar;2008&rpar; Complete Music Video Album - H264 - 1080p - DTS + DD - 5.1 - Original - [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/166860-bheema-2008-complete-music-video-album-h264-1080p-dts-dd-51-original-avatar-untoucheds/&do=findComment&comment=332768)
-- [Kaduva &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 640Kbps&rpar; - 10GB - 3.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166859-kaduva-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-10gb-34gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332767)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
