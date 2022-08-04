@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ala Vaikunthapurramuloo &lpar;2020&rpar; Telugu TRUE WEB-DL - [720p - AVC - AAC - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166872-ala-vaikunthapurramuloo-2020-telugu-true-web-dl-720p-avc-aac-15gb-900mb-x264-700mb-400mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332785)
 - [Thor Movie Collection 720p - [Tamil+ Telugu + Hindi+Eng] - x264 - AAC - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166871-thor-movie-collection-720p-tamil-telugu-hindieng-x264-aac-esub/&do=findComment&comment=332784)
 - [Captain America Movie Collection 720p - [Tamil+ Telugu + Hindi+Eng] - x264 - AAC - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166870-captain-america-movie-collection-720p-tamil-telugu-hindieng-x264-aac-esub/&do=findComment&comment=332783)
 - [BHEEMA &lpar;2008&rpar; Complete Music Video Album - H264 - 1080p - DTS + DD - 5.1 - Original - [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/166860-bheema-2008-complete-music-video-album-h264-1080p-dts-dd-51-original-avatar-untoucheds/&do=findComment&comment=332782)
 - [Paper Rocket &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 2.2GB &amp; 1.4GB] - [x264 - 500MB] - ESub [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166869-paper-rocket-2022-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-22gb-14gb-x264-500mb-esub-google-drive/&do=findComment&comment=332781)
-- [The Avengers Movie Collection 720p - [Tamil+ Telugu + Hindi+Eng] - x264 - AAC - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166868-the-avengers-movie-collection-720p-tamil-telugu-hindieng-x264-aac-esub/&do=findComment&comment=332780)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
