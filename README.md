@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pakka Commercial &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166951-pakka-commercial-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=332889)
 - [🔰PAKKA COMMERCIAL &lpar;2022&rpar; - Telugu - TRUE WEB-DL - [4K-2160p SDR] - HEVC - [UNTOUCHED] - &lpar;DD+ 5.1 - 384Kbps &amp; AAC 2.0&rpar; - [4.65GB]🔰](https://www.1tamilmv.pics/index.php?/forums/topic/166950-%F0%9F%94%B0pakka-commercial-2022-telugu-true-web-dl-4k-2160p-sdr-hevc-untouched-dd-51-384kbps-aac-20-465gb%F0%9F%94%B0/&do=findComment&comment=332888)
 - [VIKADAN 2003 MOVIE VIDEO SONGS UPSCALED HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166949-vikadan-2003-movie-video-songs-upscaled-hd1080p-with-51-dts/&do=findComment&comment=332887)
 - [Bullet Train [2022] Telugu Hindi S-Print  [GDRIVE Links]](https://www.1tamilmv.pics/index.php?/forums/topic/166948-bullet-train-2022-telugu-hindi-s-print-gdrive-links/&do=findComment&comment=332886)
 - [SENA 2003 MOVIE - THERADHATU KADHAL REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166947-sena-2003-movie-theradhatu-kadhal-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=332885)
-- [DC League of Super-Pets [2022] Hindi S-Print [GDRIVE LINKS]](https://www.1tamilmv.pics/index.php?/forums/topic/166946-dc-league-of-super-pets-2022-hindi-s-print-gdrive-links/&do=findComment&comment=332884)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
