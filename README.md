@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aavasavyuham &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Hindi] - 3.7GB - 1.4GB] - [x264 - 800MB &amp; 500MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166893-aavasavyuham-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-hindi-37gb-14gb-x264-800mb-500mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332810)
+- [Kaduva &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 640Kbps&rpar; - 10GB - 3.4GB - 2.3GB &amp; 1.5GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.pics/index.php?/forums/topic/166892-kaduva-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-10gb-34gb-23gb-15gb-x264-700mb-400mb-250mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=332809)
 - [Michael Madana Kama Rajan 1990 Tamil AMZN WEB DL 1080p Untouched x264 DDP 2.0 -  2.9GB - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166891-michael-madana-kama-rajan-1990-tamil-amzn-web-dl-1080p-untouched-x264-ddp-20-29gb-esub-google-drive/&do=findComment&comment=332808)
 - [Bullet Train &lpar;2022&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166886-bullet-train-2022-tamil-hdcam-1080p-720p-x264-tamil-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=332803)
 - [Wedding Season &lpar;2022&rpar; &lpar;WEB-DL + DD5.1 Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Telugu + Tamil + Hindi + English&rpar; - 3.4GB &amp; 1GB] - MSub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166885-wedding-season-2022-web-dl-dd51-original-audios-1080p-720p-x264-telugu-tamil-hindi-english-34gb-1gb-msub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332802)
-- [Aavasavyuham &lpar;2022&rpar; HDRip Original [Telugu + Tamil + Hindi + Mal] Full Movie](https://www.1tamilmv.pics/index.php?/forums/topic/166884-aavasavyuham-2022-hdrip-original-telugu-tamil-hindi-mal-full-movie/&do=findComment&comment=332801)
-- [Lightyear &lpar;2022&rpar; HDRip Original [Telugu + Tamil + Hindi + Malayalam + Eng] Dubbed Movie](https://www.1tamilmv.pics/index.php?/forums/topic/166883-lightyear-2022-hdrip-original-telugu-tamil-hindi-malayalam-eng-dubbed-movie/&do=findComment&comment=332800)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
