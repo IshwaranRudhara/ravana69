@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Ananda Kovela &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166939-ananda-kovela-2021-telugu-true-web-dl-1080p-720p-avc-36gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332876)
-- [Game of Thrones &lpar;S01-S08&rpar; 1080p 10bit BluRay x265 HEVC AAC7.1.MKV  110GB {G-DRIVE}](https://www.1tamilmv.pics/index.php?/forums/topic/166719-game-of-thrones-s01-s08-1080p-10bit-bluray-x265-hevc-aac71mkv-110gb-g-drive/&do=findComment&comment=332875)
-- [Victim &lpar;2022&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada&rpar; - 3.5GB &amp; 1.8GB] - [x264 - 700MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166938-victim-2022-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-35gb-18gb-x264-700mb-esub-google-drive/&do=findComment&comment=332874)
-- [Victim &lpar;2022&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Telugu + Tamil + Hindi + Malayalam + Kannada&rpar; - 3.6GB &amp; 1.3GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166937-victim-2022-s01-ep01-04-true-web-dl-1080p-720p-avc-telugu-tamil-hindi-malayalam-kannada-36gb-13gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332873)
-- [Bullet Train &lpar;2022&rpar; Hindi HDCAM - [1080p &amp; 720p - x264 - &lpar;Hindi + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166936-bullet-train-2022-hindi-hdcam-1080p-720p-x264-hindi-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=332872)
+- [VIKADAN 2003 MOVIE VIDEO SONGS UPSCALED HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166949-vikadan-2003-movie-video-songs-upscaled-hd1080p-with-51-dts/&do=findComment&comment=332887)
+- [Bullet Train [2022] Telugu Hindi S-Print  [GDRIVE Links]](https://www.1tamilmv.pics/index.php?/forums/topic/166948-bullet-train-2022-telugu-hindi-s-print-gdrive-links/&do=findComment&comment=332886)
+- [SENA 2003 MOVIE - THERADHATU KADHAL REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166947-sena-2003-movie-theradhatu-kadhal-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=332885)
+- [DC League of Super-Pets [2022] Hindi S-Print [GDRIVE LINKS]](https://www.1tamilmv.pics/index.php?/forums/topic/166946-dc-league-of-super-pets-2022-hindi-s-print-gdrive-links/&do=findComment&comment=332884)
+- [Maha &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166940-maha-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332883)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
