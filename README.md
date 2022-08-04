@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ananda Kovela &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166939-ananda-kovela-2021-telugu-true-web-dl-1080p-720p-avc-36gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332876)
+- [Game of Thrones &lpar;S01-S08&rpar; 1080p 10bit BluRay x265 HEVC AAC7.1.MKV  110GB {G-DRIVE}](https://www.1tamilmv.pics/index.php?/forums/topic/166719-game-of-thrones-s01-s08-1080p-10bit-bluray-x265-hevc-aac71mkv-110gb-g-drive/&do=findComment&comment=332875)
+- [Victim &lpar;2022&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada&rpar; - 3.5GB &amp; 1.8GB] - [x264 - 700MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166938-victim-2022-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-35gb-18gb-x264-700mb-esub-google-drive/&do=findComment&comment=332874)
 - [Victim &lpar;2022&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Telugu + Tamil + Hindi + Malayalam + Kannada&rpar; - 3.6GB &amp; 1.3GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166937-victim-2022-s01-ep01-04-true-web-dl-1080p-720p-avc-telugu-tamil-hindi-malayalam-kannada-36gb-13gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332873)
 - [Bullet Train &lpar;2022&rpar; Hindi HDCAM - [1080p &amp; 720p - x264 - &lpar;Hindi + Eng&rpar; - 2GB - 900MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166936-bullet-train-2022-hindi-hdcam-1080p-720p-x264-hindi-eng-2gb-900mb-400mb-hq-clean-audio/&do=findComment&comment=332872)
-- [Vendetta &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 2.2GB &amp; 1.1GB] - MSub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166935-vendetta-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-english-22gb-11gb-msub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332871)
-- [Koffee With Karan S07E05 Amir Khan, Kareena 720p 430MB WEB-DL AAC.5.1 ESub.x264.MKV [G-drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166934-koffee-with-karan-s07e05-amir-khan-kareena-720p-430mb-web-dl-aac51-esubx264mkv-g-drive/&do=findComment&comment=332870)
-- [Yaanai](https://www.1tamilmv.pics/index.php?/forums/topic/166933-yaanai/&do=findComment&comment=332869)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
