@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Aavasavyuham &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Telugu + Tamil + Hindi + Malayalam&rpar; - 3.7GB &amp; 1.4GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.pics/index.php?/forums/topic/166866-aavasavyuham-2022-true-web-dl-1080p-720p-avc-telugu-tamil-hindi-malayalam-37gb-14gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=332775)
-- [Hello Mini &lpar;2019&rpar; - S02E&lpar;01-10&rpar; - Tamil 1080p MX WEB-DL H x264 [1GB] [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166865-hello-mini-2019-s02e01-10-tamil-1080p-mx-web-dl-h-x264-1gb-gdrive/&do=findComment&comment=332774)
-- [Kaduva &lpar;2022&rpar; Malayalam 1080p,720p &amp; 480p AMZN WebRip DDP5.1 H.264 [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166864-kaduva-2022-malayalam-1080p720p-480p-amzn-webrip-ddp51-h264%C2%A0gdrive/&do=findComment&comment=332773)
-- [Aavasavyuham : The Arbit Documentation of an Amphibian Hunt &lpar;2022&rpar; [Tam + Tel + Hin + Mal] 1080p,720p &amp; 360p SONYLIV WEB-DL AAC2.0.H.264 [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166863-%C2%A0aavasavyuham%C2%A0-the-arbit-documentation-of-an-amphibian-hunt-2022-tam-tel-hin-mal-1080p720p-360p-sonyliv-web-dl-aac20h264-gdrive/&do=findComment&comment=332772)
-- [Abhay.S03.18+ UnRated.1080p.ZEE5.WEB-DL.AAC2.0.H.264 - UNTOUCHED - GRIVE - 4GB](https://www.1tamilmv.pics/index.php?/forums/topic/166769-abhays0318-unrated1080pzee5web-dlaac20h264-untouched-grive-4gb/&do=findComment&comment=332771)
+- [Thor Movie Collection 720p - [Tamil+ Telugu + Hindi+Eng] - x264 - AAC - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166871-thor-movie-collection-720p-tamil-telugu-hindieng-x264-aac-esub/&do=findComment&comment=332784)
+- [Captain America Movie Collection 720p - [Tamil+ Telugu + Hindi+Eng] - x264 - AAC - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166870-captain-america-movie-collection-720p-tamil-telugu-hindieng-x264-aac-esub/&do=findComment&comment=332783)
+- [BHEEMA &lpar;2008&rpar; Complete Music Video Album - H264 - 1080p - DTS + DD - 5.1 - Original - [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/166860-bheema-2008-complete-music-video-album-h264-1080p-dts-dd-51-original-avatar-untoucheds/&do=findComment&comment=332782)
+- [Paper Rocket &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 2.2GB &amp; 1.4GB] - [x264 - 500MB] - ESub [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166869-paper-rocket-2022-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-22gb-14gb-x264-500mb-esub-google-drive/&do=findComment&comment=332781)
+- [The Avengers Movie Collection 720p - [Tamil+ Telugu + Hindi+Eng] - x264 - AAC - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166868-the-avengers-movie-collection-720p-tamil-telugu-hindieng-x264-aac-esub/&do=findComment&comment=332780)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
