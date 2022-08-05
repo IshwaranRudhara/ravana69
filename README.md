@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Ullathai Allithaa &lpar;1996&rpar; - Tamil - Lahari - LRCD 4504 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Sirpi Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166987-ullathai-allithaa-1996-tamil-lahari-lrcd-4504-true-mp3-441khz-16bit-320kbps-sirpi-musical/&do=findComment&comment=332932)
-- [The Sandman &lpar;2022&rpar; S1E[01-10]  [Tam + Tel + Hin + Eng] NF WEB-DL 1080p DDP5.1 Atmos x264 - Showflix [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/166986-the-sandman-2022-s1e01-10%C2%A0-tam-tel-hin-eng-nf-web-dl-1080p%C2%A0ddp51-atmos-x264-showflix%C2%A0gdrive/&do=findComment&comment=332931)
-- [Surieyan &lpar;1992&rpar; - Tamil - Lahari - LRCD 9621 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Deva Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166985-surieyan-1992-tamil-lahari-lrcd-9621-true-mp3-441khz-16bit-320kbps-deva-musical/&do=findComment&comment=332930)
-- [Darlings &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.9GB - 1.9GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166983-darlings-2022-hindi-true-web-dl-1080p-720p-avc-29gb-19gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332928)
-- [The Sandman &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 5.7GB - 3.8GB - 2.1GB] - [x264 - 1.4GB &amp; 900MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166982-the-sandman-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-57gb-38gb-21gb-x264-14gb-900mb-esub/&do=findComment&comment=332927)
+- [Pakka Commercial &lpar;2022&rpar; HDRip Telugu Full Movie](https://www.1tamilmv.pics/index.php?/forums/topic/166995-pakka-commercial-2022-hdrip-telugu-full-movie/&do=findComment&comment=332942)
+- [Darlings.2022.1080p.NF.WEB-DL.DDP5.1.x264 - UNTOUCHED - GRIVE - 3GB](https://www.1tamilmv.pics/index.php?/forums/topic/166994-darlings20221080pnfweb-dlddp51x264-untouched-grive-3gb/&do=findComment&comment=332940)
+- [The Sandman &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 5.7GB - 3.8GB - 2.1GB] - [x264 - 1.4GB &amp; 900MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166982-the-sandman-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-57gb-38gb-21gb-x264-14gb-900mb-esub/&do=findComment&comment=332939)
+- [Sita Ramam &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166989-sita-ramam-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332934)
+- [Kuruthi Aattam &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166988-kuruthi-aattam-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332933)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
