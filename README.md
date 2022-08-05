@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pakka Commercial &lpar;2022&rpar; Telugu AHA &amp; NETFLIX TRUE WEB-DL - [4k-2160p-5GB / 1080p-4.5GB-3GB-2GB / 720p-1.6GB-950MB / 540p-350MB / 480p-700MB] - x265/x264 - [DD+5.1 - 640kbps / 384kbps &amp; AAC 2.0] - ESubs - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166952-pakka-commercial-2022-telugu-aha-netflix-true-web-dl-4k-2160p-5gb-1080p-45gb-3gb-2gb-720p-16gb-950mb-540p-350mb-480p-700mb-x265x264-dd51-640kbps-384kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=332892)
+- [Maha &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166940-maha-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332891)
+- [Pakka Commercial &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 4.8GB - 3.2GB - 2.1GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166943-pakka-commercial-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-48gb-32gb-21gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=332890)
 - [Pakka Commercial &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.pics/index.php?/forums/topic/166951-pakka-commercial-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=332889)
 - [🔰PAKKA COMMERCIAL &lpar;2022&rpar; - Telugu - TRUE WEB-DL - [4K-2160p SDR] - HEVC - [UNTOUCHED] - &lpar;DD+ 5.1 - 384Kbps &amp; AAC 2.0&rpar; - [4.65GB]🔰](https://www.1tamilmv.pics/index.php?/forums/topic/166950-%F0%9F%94%B0pakka-commercial-2022-telugu-true-web-dl-4k-2160p-sdr-hevc-untouched-dd-51-384kbps-aac-20-465gb%F0%9F%94%B0/&do=findComment&comment=332888)
-- [VIKADAN 2003 MOVIE VIDEO SONGS UPSCALED HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166949-vikadan-2003-movie-video-songs-upscaled-hd1080p-with-51-dts/&do=findComment&comment=332887)
-- [Bullet Train [2022] Telugu Hindi S-Print  [GDRIVE Links]](https://www.1tamilmv.pics/index.php?/forums/topic/166948-bullet-train-2022-telugu-hindi-s-print-gdrive-links/&do=findComment&comment=332886)
-- [SENA 2003 MOVIE - THERADHATU KADHAL REMASTERD VIDEO SONG HD1080P WITH 5.1 DTS.](https://www.1tamilmv.pics/index.php?/forums/topic/166947-sena-2003-movie-theradhatu-kadhal-remasterd-video-song-hd1080p-with-51-dts/&do=findComment&comment=332885)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
