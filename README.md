@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [🔰TANHAJI &lpar;2020&rpar; - &lpar;Hindi Original Version&rpar; - TRUE WEB-DL - &lpar;1080p&rpar; - AVC - [UNTOUCHED] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - [3.16GB] - &lpar;GOOGLE DRIVE LINK&rpar;🔰](https://www.1tamilmv.pics/index.php?/forums/topic/167001-%F0%9F%94%B0tanhaji-2020-hindi-original-version-true-web-dl-1080p-avc-untouched-dd51-192kbps-aac-20-316gb-google-drive-link%F0%9F%94%B0/&do=findComment&comment=332953)
+- [Soft Instrumentals - A. R. Rahman - Tamil - Tips Music - TCCD - 7512 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - A. R. Rahman Musical](https://www.1tamilmv.pics/index.php?/forums/topic/167000-soft-instrumentals-a-r-rahman-tamil-tips-music-tccd-7512-true-mp3-441khz-16bit-320kbps-a-r-rahman-musical/&do=findComment&comment=332952)
+- [Unnai Vaazhthi Padukiren &lpar;1992&rpar; - Tamil - Ramiy Records - ACD 2292 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Illaiyaraja Musical](https://www.1tamilmv.pics/index.php?/forums/topic/166999-unnai-vaazhthi-padukiren-1992-tamil-ramiy-records-acd-2292-true-mp3-441khz-16bit-320kbps-illaiyaraja-musical/&do=findComment&comment=332951)
 - [Pisachi &lpar;2015&rpar; Telugu DSNP TRUE WEB-DL - [1080p-1.3GB-900MB / 720p-500MB / 480p-300MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166998-pisachi-2015-telugu-dsnp-true-web-dl-1080p-13gb-900mb-720p-500mb-480p-300mb-avc-aac-gdrivelinks/&do=findComment&comment=332950)
 - [AAYUDHAM &lpar;2003&rpar; Telugu SUNNXT TRUE WEB-DL &amp; HDRips - [1080p-2.5GB / 720p-1GB / 576p-500MB / 480p-2.3GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166996-aayudham-2003-telugu-sunnxt-true-web-dl-hdrips-1080p-25gb-720p-1gb-576p-500mb-480p-23gb-avc-aac-gdrivelinks/&do=findComment&comment=332949)
-- [Betting Bangaraju &lpar;2010&rpar; Telugu ETVWIN WEBDL - [720p-1.6GB / 576p-1GB / 480p-800MB / 360p-600MB / 240p-300MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166997-betting-bangaraju-2010-telugu-etvwin-webdl-720p-16gb-576p-1gb-480p-800mb-360p-600mb-240p-300mb-avc-aac-gdrivelinks/&do=findComment&comment=332948)
-- [AAYUDHAM &lpar;2003&rpar; Telugu SUNNXT TRUE WEB-DL &amp; HDRips - [1080p-2.5GB / 720p-1GB / 576p-500MB / 480p-2.3GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166996-aayudham-2003-telugu-sunnxt-true-web-dl-hdrips-1080p-25gb-720p-1gb-576p-500mb-480p-23gb-avc-aac-gdrivelinks/&do=findComment&comment=332947)
-- [Ananda Kovela &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166939-ananda-kovela-2021-telugu-true-web-dl-1080p-720p-avc-36gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=332946)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
