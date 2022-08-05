@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pakka Commercial &lpar;2022&rpar; HDRip Telugu Full Movie](https://www.1tamilmv.pics/index.php?/forums/topic/166995-pakka-commercial-2022-hdrip-telugu-full-movie/&do=findComment&comment=332942)
-- [Darlings.2022.1080p.NF.WEB-DL.DDP5.1.x264 - UNTOUCHED - GRIVE - 3GB](https://www.1tamilmv.pics/index.php?/forums/topic/166994-darlings20221080pnfweb-dlddp51x264-untouched-grive-3gb/&do=findComment&comment=332940)
-- [The Sandman &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 5.7GB - 3.8GB - 2.1GB] - [x264 - 1.4GB &amp; 900MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166982-the-sandman-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-57gb-38gb-21gb-x264-14gb-900mb-esub/&do=findComment&comment=332939)
-- [Sita Ramam &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166989-sita-ramam-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332934)
-- [Kuruthi Aattam &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.pics/index.php?/forums/topic/166988-kuruthi-aattam-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=332933)
+- [Pisachi &lpar;2015&rpar; Telugu DSNP TRUE WEB-DL - [1080p-1.3GB-900MB / 720p-500MB / 480p-300MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166998-pisachi-2015-telugu-dsnp-true-web-dl-1080p-13gb-900mb-720p-500mb-480p-300mb-avc-aac-gdrivelinks/&do=findComment&comment=332950)
+- [AAYUDHAM &lpar;2003&rpar; Telugu SUNNXT TRUE WEB-DL &amp; HDRips - [1080p-2.5GB / 720p-1GB / 576p-500MB / 480p-2.3GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166996-aayudham-2003-telugu-sunnxt-true-web-dl-hdrips-1080p-25gb-720p-1gb-576p-500mb-480p-23gb-avc-aac-gdrivelinks/&do=findComment&comment=332949)
+- [Betting Bangaraju &lpar;2010&rpar; Telugu ETVWIN WEBDL - [720p-1.6GB / 576p-1GB / 480p-800MB / 360p-600MB / 240p-300MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166997-betting-bangaraju-2010-telugu-etvwin-webdl-720p-16gb-576p-1gb-480p-800mb-360p-600mb-240p-300mb-avc-aac-gdrivelinks/&do=findComment&comment=332948)
+- [AAYUDHAM &lpar;2003&rpar; Telugu SUNNXT TRUE WEB-DL &amp; HDRips - [1080p-2.5GB / 720p-1GB / 576p-500MB / 480p-2.3GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/166996-aayudham-2003-telugu-sunnxt-true-web-dl-hdrips-1080p-25gb-720p-1gb-576p-500mb-480p-23gb-avc-aac-gdrivelinks/&do=findComment&comment=332947)
+- [Ananda Kovela &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166939-ananda-kovela-2021-telugu-true-web-dl-1080p-720p-avc-36gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=332946)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
