@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Wedding Season &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166973-wedding-season-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-3gb-12gb-x264-tam-tel-hin-450mb-esub-google-drive/&do=findComment&comment=332916)
+- [Maha &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub - Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/166972-maha-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-4gb-26gb-14gb-x264-700mb-400mb-250mb-esub-google-drive/&do=findComment&comment=332915)
 - [Japanil Kalyanaraman 1985 Tamil 480p AMZN WEB-DL DDP2.0 H.264 2.1GB [GDRIVE]](https://www.1tamilmv.pics/index.php?/forums/topic/166971-japanil-kalyanaraman-1985-tamil-480p-amzn-web-dl-ddp20-h264-21gb-gdrive/&do=findComment&comment=332914)
 - [Atrangi Re 2021 Tamil 1080p HDR DSNP WEB-DL DDP5.1 ATMOS H265 7.3GB [GDRIVE]](https://www.1tamilmv.pics/index.php?/forums/topic/166970-atrangi-re-2021-tamil-1080p-hdr-dsnp-web-dl-ddp51-atmos-h265-73gb-gdrive/&do=findComment&comment=332913)
 - [Thirteen Lives &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 3.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/166969-thirteen-lives-2022-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-34gb-13gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=332912)
-- [Maha  &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.pics/index.php?/forums/topic/166959-maha-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=332911)
-- [GHAJINI [ANNIYAN] &lpar;2005&rpar;  [Tel+Tam] &lpar;Music Video Album&rpar; - BLU-RAY - 1080p - DTS/DD-5.1 - 4GB - BDRemuX - [avatar UnToucheds]](https://www.1tamilmv.pics/index.php?/forums/topic/166968-ghajini-anniyan-2005-teltam-music-video-album-blu-ray-1080p-dtsdd-51-4gb-bdremux-avatar-untoucheds/&do=findComment&comment=332910)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
