@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Malayankunju &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167293-malayankunju-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-8gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=333380)
-- [Thank You &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 / XviD - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167297-thank-you-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-xvid-700mb-400mb-250mb-esub/&do=findComment&comment=333379)
-- [NIJAM 2003 TELUGU MOVIE VIDEO SONGS SUNNEXT HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167296-nijam-2003-telugu-movie-video-songs-sunnext-hd1080p-with-51-dts/&do=findComment&comment=333378)
-- [I.Am.Groot.Groots.Pursuit.2022.1080p.DSNP.WEB-DL.English.DD+5.1.x264 - UNTOUCHED - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167276-iamgrootgrootspursuit20221080pdsnpweb-dlenglishdd51x264-untouched-grive/&do=findComment&comment=333377)
-- [Katti.Batti.2015.1080p.NF.WEB-DL.DDP5.1.x264 - UNTOUCHED - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167295-kattibatti20151080pnfweb-dlddp51x264-untouched-grive%C2%A0/&do=findComment&comment=333376)
+- [The Warriorr &lpar;2022&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167294-the-warriorr-2022-tamil-hd-1080p-720p-x264-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333386)
+- [Thank You [2022] Telugu [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167301-thank-you-2022-telugu-gdrive-links/&do=findComment&comment=333385)
+- [The Warriorr 2022 Telugu HD [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167300-the-warriorr-2022-telugu-hd-gdrive-links/&do=findComment&comment=333384)
+- [Rashtra Kavach Om - The Battle Within [2022] Hindi](https://www.1tamilmv.team/index.php?/forums/topic/167299-rashtra-kavach-om-the-battle-within-2022-hindi/&do=findComment&comment=333383)
+- [The Warriorr &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - 3.8GB - 2.4GB - 1.4GB &amp; 650MB] - [x264 / XviD - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167298-the-warriorr-2022-telugu-true-web-dl-1080p-720p-hevc-avc-38gb-24gb-14gb-650mb-x264-xvid-700mb-400mb-250mb-esub/&do=findComment&comment=333382)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
