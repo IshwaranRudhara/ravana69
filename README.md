@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Okka Magaadu &lpar;2007&rpar; &lpar;Telugu Music VIdeo Album&rpar; - AMZN - WEBDL - H264 - DD5.1&lpar;448Kbps&rpar; - OrgVer - 900MB - Exclusive⚡️ [avatar UnTouched&#39;s]](https://www.1tamilmv.pics/index.php?/forums/topic/167287-okka-magaadu-2007-telugu-music-video-album-amzn-webdl-h264-dd51448kbps-orgver-900mb-exclusive%E2%9A%A1%EF%B8%8F-avatar-untoucheds/&do=findComment&comment=333362)
 - [Project Z &lpar;2017&rpar; Telugu TRUE WEB-HD - [1080p-2.4GB / 720p-1.5GB / 576p-500MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/167286-project-z-2017-telugu-true-web-hd-1080p-24gb-720p-15gb-576p-500mb-avc-aac-gdrivelinks/&do=findComment&comment=333361)
 - [Peddannayya &lpar;1997&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/167285-peddannayya-1997-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=333360)
 - [Doosukeltha &lpar;2013&rpar; Telugu AMZN TRUE WEBDL - 1080p - AVC - [DD+2.0 - 224kbps] - Esubs - 6GB.mkv - [GDriveLinks]](https://www.1tamilmv.pics/index.php?/forums/topic/167284-doosukeltha-2013-telugu-amzn-true-webdl-1080p-avc-dd20-224kbps-esubs-6gbmkv-gdrivelinks/&do=findComment&comment=333359)
 - [Kaaki Sattai &lpar;2015&rpar;.&lpar;1080p + 720p&rpar;.x264.DDP5.1&lpar;192kbps&rpar;.AAC2.0 - 8.6GB + 4.5GB + 2.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/156742-kaaki-sattai-20151080p-720px264ddp51192kbpsaac20-86gb-45gb-27gb-gdrive/&do=findComment&comment=333358)
-- [Kaaki Sattai &lpar;2015&rpar;.&lpar;1080p + 720p&rpar;.x264.DDP5.1&lpar;192kbps&rpar;.AAC2.0 - 8.6GB + 4.5GB + 2.7GB - GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/156742-kaaki-sattai-20151080p-720px264ddp51192kbpsaac20-86gb-45gb-27gb-gdrive/&do=findComment&comment=333357)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
