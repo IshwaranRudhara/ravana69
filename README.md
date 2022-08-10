@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Don&#39;t Speak &lpar;2020&rpar; HDRip - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Eng] - 1.6GB &amp; 850MB | x264 - Tamil Dubbed - 400MB] - ESub - SF  [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/167260-dont-speak-2020-hdrip-1080p-720p-x264-tamil-original-audio-eng-16gb-850mb-x264-tamil-dubbed-400mb-esub-sf-gdrive/&do=findComment&comment=333316)
 - [Guardians of the Galaxy Duology &lpar;2014 - 2017&rpar; BluRay IMAX Multi 5.1 x264 - 2160p [4K] HDR | 1080p | 720p - 17.13 - 15.29 GB | 9.61 - 7.15 GB | 4.52 - 4.02 GB | 1.42 - 1.27 GB](https://www.1tamilmv.pics/index.php?/forums/topic/167259-guardians-of-the-galaxy-duology-2014-2017-bluray-imax-multi-51-x264-2160p-4k-hdr-1080p-720p-1713-1529-gb-961-715-gb-452-402-gb-142-127-gb/&do=findComment&comment=333315)
 - [Padayappa &lpar;1999&rpar; Original Motion Picture Soundtrack - A. R. Rahman Musical - FLAC [24bit|16bit] - 375 MB | 200 MB](https://www.1tamilmv.pics/index.php?/forums/topic/167258-%C2%A0padayappa-1999-original-motion-picture-soundtrack-a-r-rahman-musical-flac-24bit16bit-375-mb-200-mb/&do=findComment&comment=333314)
 - [Jumanji Trilogy &lpar;1995-2019&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/167257-jumanji-trilogy-1995-2019-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=333313)
 - [The Terminal List &lpar;2022&rpar; Complete S01 Merged All Episodes In One File AMZN WEB-DL [Telugu + Tamil + Hindi + Malayalam + Kannada] | 1080p, 720p, 480p | HEVC | DDP 5.1 | MSub [Google Drive]](https://www.1tamilmv.pics/index.php?/forums/topic/166845-the-terminal-list-2022-complete-s01-merged-all-episodes-in-one-file-amzn-web-dl-telugu-tamil-hindi-malayalam-kannada-1080p-720p-480p-hevc-ddp-51-msub-google-drive/&do=findComment&comment=333312)
-- [Bad Boys Trilogy &lpar;1995-2020&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu + Tamil + Hindi + English&rpar; - 720p x264 - AAC - ESubs](https://www.1tamilmv.pics/index.php?/forums/topic/167256-bad-boys-trilogy-1995-2020-bluray-original-audios-telugu-tamil-hindi-english-720p-x264-aac-esubs/&do=findComment&comment=333311)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
