@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Raja Kumarudu &lpar;1999&rpar; Telugu TRUE HQ HDTV - [1080p &amp; 720p - AVC - 2.4GB - 1.4GB | x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.pics/index.php?/forums/topic/167255-raja-kumarudu-1999-telugu-true-hq-hdtv-1080p-720p-avc-24gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=333310)
+- [Motu Patlu and the Secret of Devils Heart &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Kannada + Bengali + Gujarati + Marathi&rpar; - 1.6GB - 900MB &amp; 400MB]_MSLeyon_ Google Drive](https://www.1tamilmv.pics/index.php?/forums/topic/167254-motu-patlu-and-the-secret-of-devils-heart-2022-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-bengali-gujarati-marathi-16gb-900mb-400mb_msleyon_-google-drive/&do=findComment&comment=333309)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333308)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333307)
 - [Motu Patlu and the Secret of Devils Heart &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Kannada + Bengali + Gujarati + Marathi&rpar; - 1.6GB - 900MB &amp; 400MB]](https://www.1tamilmv.pics/index.php?/forums/topic/167153-motu-patlu-and-the-secret-of-devils-heart-2022-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-bengali-gujarati-marathi-16gb-900mb-400mb/&do=findComment&comment=333306)
-- [Don&#39;t Speak &lpar;2020&rpar; HDRip - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Eng] - 1.6GB &amp; 850MB | x264 - Tamil Dubbed - 400MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/167236-dont-speak-2020-hdrip-1080p-720p-x264-tamil-original-audio-eng-16gb-850mb-x264-tamil-dubbed-400mb-esub/&do=findComment&comment=333305)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.pics/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333304)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
