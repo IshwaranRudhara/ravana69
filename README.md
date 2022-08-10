@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [My.Favorite.Girlfriend.2022.720p.AMZN.WEBRip.800MB Download](https://www.1tamilmv.pics/index.php?/forums/topic/167262-myfavoritegirlfriend2022720pamznwebrip800mb-download/&do=findComment&comment=333319)
-- [Locke and Key S01 &amp; S02 [Hindi + English] 720P &amp; 1080p Esubs  - SF [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/167261-locke-and-key-s01-s02-hindi-english-720p-1080p-esubs-%C2%A0-sf-gdrive/&do=findComment&comment=333318)
-- [Pokiri Remastered Print [2022] Dual Audio [Telugu Hindi] 1080p | 720p | 480p](https://www.1tamilmv.pics/index.php?/forums/topic/167174-pokiri-remastered-print-2022-dual-audio-telugu-hindi-1080p-720p-480p/&do=findComment&comment=333317)
-- [Don&#39;t Speak &lpar;2020&rpar; HDRip - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Eng] - 1.6GB &amp; 850MB | x264 - Tamil Dubbed - 400MB] - ESub - SF  [Gdrive]](https://www.1tamilmv.pics/index.php?/forums/topic/167260-dont-speak-2020-hdrip-1080p-720p-x264-tamil-original-audio-eng-16gb-850mb-x264-tamil-dubbed-400mb-esub-sf-gdrive/&do=findComment&comment=333316)
-- [Guardians of the Galaxy Duology &lpar;2014 - 2017&rpar; BluRay IMAX Multi 5.1 x264 - 2160p [4K] HDR | 1080p | 720p - 17.13 - 15.29 GB | 9.61 - 7.15 GB | 4.52 - 4.02 GB | 1.42 - 1.27 GB](https://www.1tamilmv.pics/index.php?/forums/topic/167259-guardians-of-the-galaxy-duology-2014-2017-bluray-imax-multi-51-x264-2160p-4k-hdr-1080p-720p-1713-1529-gb-961-715-gb-452-402-gb-142-127-gb/&do=findComment&comment=333315)
+- [I Am Groot &lpar;2022&rpar; S01 EP&lpar;01-05&rpar; English TRUE WEB-DL - [1080p &amp; 720p - &lpar;DD+5.1 - ATMOS - 768Kbps&rpar; - 1GB - 600MB &amp; 200MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/167263-i-am-groot-2022-s01-ep01-05-english-true-web-dl-1080p-720p-dd51-atmos-768kbps-1gb-600mb-200mb-esub/&do=findComment&comment=333330)
+- [4K 2160p 60FPS ULTRA PREMIUM QUALITY UHD Songs/OTT Downloads/Clips/UHD Photos @TELEGRAM | UHD HUNTERYT](https://www.1tamilmv.pics/index.php?/forums/topic/167270-4k-2160p-60fps-ultra-premium-quality-uhd-songsott-downloadsclipsuhd-photos-telegram-uhd-hunteryt/&do=findComment&comment=333329)
+- [I Am Groot &lpar;2022&rpar; S01 EP&lpar;01-05&rpar; English TRUE WEB-DL - [#1080p &amp; #720p - &lpar;DD+5.1 - ATMOS - 768Kbps&rpar; - 1GB - 600MB &amp; 200MB] - ESub](https://www.1tamilmv.pics/index.php?/forums/topic/167269-i-am-groot-2022-s01-ep01-05-english-true-web-dl-1080p-720p-dd51-atmos-768kbps-1gb-600mb-200mb-esub/&do=findComment&comment=333328)
+- [Locke and Key S03 Complete 1080p NF WEB-DL Dual  Esubs x264 - 1080p | 720p - 10 GB | 2 GB + Soundtrack Rip](https://www.1tamilmv.pics/index.php?/forums/topic/167268-locke-and-key-s03-complete-1080p-nf-web-dl-dual-esubs-x264-1080p-720p-10-gb-2-gb-soundtrack-rip/&do=findComment&comment=333327)
+- [Dasavatharam&lpar;2008&rpar;-Full Album-Simply South 1080P with DTSMA 5.1 Tamil Audio-GDRIVE](https://www.1tamilmv.pics/index.php?/forums/topic/167267-dasavatharam2008-full-album-simply-south-1080p-with-dtsma-51-tamil-audio-gdrive/&do=findComment&comment=333326)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
