@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thank You &lpar;2022&rpar; Telugu AMZN TRUE WEB-DL - [4k-2160p-11GB / 1080p-8.5GB-5GB-2.5GB / 720p-1.2GB-800MB / 480p-400MB] - HEVC - [DD+5.1 - 640kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167303-thank-you-2022-telugu-amzn-true-web-dl-4k-2160p-11gb-1080p-85gb-5gb-25gb-720p-12gb-800mb-480p-400mb-hevc-dd51-640kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=333389)
+- [Thank You &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 11.1GB - 8.5GB - 6.5GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167297-thank-you-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-111gb-85gb-65gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333388)
 - [The Warriorr &lpar;2022&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167294-the-warriorr-2022-tamil-hd-1080p-720p-x264-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333386)
 - [Thank You [2022] Telugu [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167301-thank-you-2022-telugu-gdrive-links/&do=findComment&comment=333385)
 - [The Warriorr 2022 Telugu HD [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167300-the-warriorr-2022-telugu-hd-gdrive-links/&do=findComment&comment=333384)
-- [Rashtra Kavach Om - The Battle Within [2022] Hindi](https://www.1tamilmv.team/index.php?/forums/topic/167299-rashtra-kavach-om-the-battle-within-2022-hindi/&do=findComment&comment=333383)
-- [The Warriorr &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 22.5GB - 11GB - 6.7GB - 3.9GB - 2.2GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167298-the-warriorr-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-225gb-11gb-67gb-39gb-22gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333382)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
