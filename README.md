@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Thank You &lpar;2022&rpar; Telugu AMZN TRUE WEB-DL - [4k-2160p-11GB / 1080p-8.5GB-5GB-2.5GB / 720p-1.2GB-800MB / 480p-400MB] - HEVC - [DD+5.1 - 640kbps &amp; AAC 2.0] - Esubs - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167303-thank-you-2022-telugu-amzn-true-web-dl-4k-2160p-11gb-1080p-85gb-5gb-25gb-720p-12gb-800mb-480p-400mb-hevc-dd51-640kbps-aac-20-esubs-gdrivelinks/&do=findComment&comment=333389)
-- [Thank You &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 11.1GB - 8.5GB - 6.5GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167297-thank-you-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-111gb-85gb-65gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333388)
-- [The Warriorr &lpar;2022&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167294-the-warriorr-2022-tamil-hd-1080p-720p-x264-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333386)
-- [Thank You [2022] Telugu [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167301-thank-you-2022-telugu-gdrive-links/&do=findComment&comment=333385)
-- [The Warriorr 2022 Telugu HD [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167300-the-warriorr-2022-telugu-hd-gdrive-links/&do=findComment&comment=333384)
+- [Thank You &lpar;2022&rpar; HDRip Telugu Full Movie](https://www.1tamilmv.team/index.php?/forums/topic/167311-thank-you-2022-hdrip-telugu-full-movie/&do=findComment&comment=333398)
+- [The Warriorr &lpar;2022&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167294-the-warriorr-2022-tamil-hd-1080p-720p-x264-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333397)
+- [Rashtra Kavach Om &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167310-rashtra-kavach-om-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=333396)
+- [Thank You &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167309-thank-you-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333395)
+- [The Warriorr &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 4K WEB-HD UNTOUCHED - HEVC - [DD+5.1 &lpar;192Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167308-the-warriorr-2022-telugu-music-video-album-4k-web-hd-untouched-hevc-dd51-192kbps-e-sub-by-beast-uk/&do=findComment&comment=333394)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
