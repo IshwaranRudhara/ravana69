@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [THE WARRIORR 2022 MOVIE COMPLETE VIDEO SONGS HD1080P &lpar;TELUGU+TAMIL&rpar; DUAL AUDIO WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167376-the-warriorr-2022-movie-complete-video-songs-hd1080p-telugutamil-dual-audio-with-51-dts/&do=findComment&comment=333480)
-- [Shabaash Mithu [2022] Multi Audio [Telugu Tamil Hindi] Gdrive Links](https://www.1tamilmv.team/index.php?/forums/topic/167375-shabaash-mithu-2022-multi-audio-telugu-tamil-hindi-gdrive-links/&do=findComment&comment=333479)
-- [Maha Manishi / Maamanithan [2022] Dual Audio [Telugu Tamil] Gdrive Links](https://www.1tamilmv.team/index.php?/forums/topic/167374-maha-manishi-maamanithan-2022-dual-audio-telugu-tamil-gdrive-links/&do=findComment&comment=333478)
-- [Cadaver [2022] Multi Audio [Telugu Tamil Hindi Kannada Malayalam] Gdrive Links](https://www.1tamilmv.team/index.php?/forums/topic/167373-cadaver-2022-multi-audio-telugu-tamil-hindi-kannada-malayalam-gdrive-links/&do=findComment&comment=333477)
-- [Minions: The Rise of Gru [2022] Multi Audio [Telugu Tamil Hindi English] Gdrive Links](https://www.1tamilmv.team/index.php?/forums/topic/167372-minions-the-rise-of-gru-2022-multi-audio-telugu-tamil-hindi-english-gdrive-links/&do=findComment&comment=333476)
+- [Annamalai &lpar;1992&rpar; - Tamil - Lahari - LRCD 1004 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Deva Musical](https://www.1tamilmv.team/index.php?/forums/topic/167382-annamalai-1992-tamil-lahari-lrcd-1004-true-mp3-441khz-16bit-320kbps-deva-musical/&do=findComment&comment=333486)
+- [Bairavaa &lpar;2016&rpar; - Tamil - Lahari Music - LRCD 4536 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Santhosh Narayanan Musical](https://www.1tamilmv.team/index.php?/forums/topic/167381-bairavaa-2016-tamil-lahari-music-lrcd-4536-true-mp3-441khz-16bit-320kbps-santhosh-narayanan-musical/&do=findComment&comment=333485)
+- [Irudhi Suttru &lpar;2016&rpar; - Tamil - Lahari Music - T-Series - LRCD 4520 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Santhosh Narayanan Musical](https://www.1tamilmv.team/index.php?/forums/topic/167380-irudhi-suttru-2016-tamil-lahari-music-t-series-lrcd-4520-true-mp3-441khz-16bit-320kbps-santhosh-narayanan-musical/&do=findComment&comment=333484)
+- [Hero &lpar;2019&rpar; - Tamil - Lahari Music - LRCD 4539 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Yuvan Shankar Raja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167379-hero-2019-tamil-lahari-music-lrcd-4539-true-mp3-441khz-16bit-320kbps-yuvan-shankar-raja-musical/&do=findComment&comment=333483)
+- [Pattas &lpar;2020&rpar; - Tamil - Lahari Music - LRCD 4545 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Vivek - Mervin Musical](https://www.1tamilmv.team/index.php?/forums/topic/167378-pattas-2020-tamil-lahari-music-lrcd-4545-true-mp3-441khz-16bit-320kbps-vivek-mervin-musical/&do=findComment&comment=333482)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
