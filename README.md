@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rashtra Kavach Om &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.team/index.php?/forums/topic/167322-rashtra-kavach-om-2022-hindi-true-web-dl-1080p-720p-avc-23gb-14gb-x264-700mb-400mb-esub-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=333410)
 - [Thank You &lpar;2022&rpar; Telugu AMZN WebRip 480p , 720p ,1080p &amp; 2160p AAC2.0 H.264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167321-thank-you-2022-telugu-amzn-webrip-480p-720p-1080p-2160p-aac20-h264-sf-gdrive/&do=findComment&comment=333409)
 - [Rashtra Kavach Om &lpar;2022&rpar; Hindi ZEE5 WebRip 480p,720p,1080p &amp; 2160p x264 AAC- SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167320-rashtra-kavach-om-2022-hindi-zee5-webrip-480p720p1080p-2160p-x264-aac-sf-gdrive/&do=findComment&comment=333408)
 - [Malayankunju &lpar;2022&rpar; Malayalam AMZN WebRip 480p,720p &amp; 1080p AAC2.0 H.264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167319-malayankunju-2022-malayalam-amzn-webrip-480p720p-1080p-aac20-h264-sf-gdrive/&do=findComment&comment=333407)
 - [The Warriorr &lpar;2022&rpar; Telugu DSNP WEB-DL 360p,720p,1080p &amp; 2160p AAC2.0 H.264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167318-the-warriorr-2022-telugu-dsnp-web-dl-360p720p1080p-2160p-aac20-h264-sf-gdrive/&do=findComment&comment=333406)
-- [I Am Groot S01 [2022] English [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167317-i-am-groot-s01-2022-english-gdrive-links/&do=findComment&comment=333405)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
