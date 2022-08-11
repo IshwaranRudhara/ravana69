@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Thank You &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 11.1GB - 8.5GB - 6.5GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167297-thank-you-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-111gb-85gb-65gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333404)
-- [Zombie Reddy [2021] Dual Audio [Hindi Telugu]](https://www.1tamilmv.team/index.php?/forums/topic/167316-zombie-reddy-2021-dual-audio-hindi-telugu/&do=findComment&comment=333403)
-- [30 Rojullo Preminchadam Ela [2021] Dual Audio [Hindi Telugu]](https://www.1tamilmv.team/index.php?/forums/topic/167315-30-rojullo-preminchadam-ela-2021-dual-audio-hindi-telugu/&do=findComment&comment=333402)
-- [The Warriorr &lpar;2022&rpar; HDRip Telugu Full Movie](https://www.1tamilmv.team/index.php?/forums/topic/167314-the-warriorr-2022-hdrip-telugu-full-movie/&do=findComment&comment=333401)
-- [Yaaradi Nee Mohini &lpar;2008&rpar; Original Motion Picture Soundtrack - Yuvan Shankar Raja - WAV&lpar;PCM&rpar; [24bit] | FLAC [16bit] | MP3 [320kbps|128kbps] - 623 MB | 260 MB | 87 MB | 44 MB](https://www.1tamilmv.team/index.php?/forums/topic/167313-yaaradi-nee-mohini-2008-original-motion-picture-soundtrack-yuvan-shankar-raja-wavpcm-24bit-flac-16bit-mp3-320kbps128kbps-623-mb-260-mb-87-mb-44-mb/&do=findComment&comment=333400)
+- [Thank You &lpar;2022&rpar; Telugu AMZN WebRip 480p , 720p ,1080p &amp; 2160p AAC2.0 H.264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167321-thank-you-2022-telugu-amzn-webrip-480p-720p-1080p-2160p-aac20-h264-sf-gdrive/&do=findComment&comment=333409)
+- [Rashtra Kavach Om &lpar;2022&rpar; Hindi ZEE5 WebRip 480p,720p,1080p &amp; 2160p x264 AAC- SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167320-rashtra-kavach-om-2022-hindi-zee5-webrip-480p720p1080p-2160p-x264-aac-sf-gdrive/&do=findComment&comment=333408)
+- [Malayankunju &lpar;2022&rpar; Malayalam AMZN WebRip 480p,720p &amp; 1080p AAC2.0 H.264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167319-malayankunju-2022-malayalam-amzn-webrip-480p720p-1080p-aac20-h264-sf-gdrive/&do=findComment&comment=333407)
+- [The Warriorr &lpar;2022&rpar; Telugu DSNP WEB-DL 360p,720p,1080p &amp; 2160p AAC2.0 H.264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167318-the-warriorr-2022-telugu-dsnp-web-dl-360p720p1080p-2160p-aac20-h264-sf-gdrive/&do=findComment&comment=333406)
+- [I Am Groot S01 [2022] English [Gdrive Links]](https://www.1tamilmv.team/index.php?/forums/topic/167317-i-am-groot-s01-2022-english-gdrive-links/&do=findComment&comment=333405)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
