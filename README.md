@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Laal Singh Chadha &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167331-laal-singh-chadha-2022-tamil-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333421)
-- [Kadamaiyai Sei &lpar;2022&rpar; Tamil Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Arun Raj Musical](https://www.1tamilmv.team/index.php?/forums/topic/167330-kadamaiyai-sei-2022-tamil-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-arun-raj-musical/&do=findComment&comment=333420)
-- [Pushpa - The Rise, Pt. 01 &lpar;2021&rpar; - Tamil - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Devi Sri Prasad Musical](https://www.1tamilmv.team/index.php?/forums/topic/167327-pushpa-the-rise-pt-01-2021-tamil-true-mp3-441khz-16bit-320kbps-devi-sri-prasad-musical/&do=findComment&comment=333419)
-- [Peddannayya &lpar;1997&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167285-peddannayya-1997-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=333418)
-- [Raksha Bandhan	Hindi HDCAM watch online download 1080p 720p  480p](https://www.1tamilmv.team/index.php?/forums/topic/167329-raksha-bandhan%09hindi-hdcam-watch-online-download-1080p-720p-480p/&do=findComment&comment=333417)
+- [Thank You 2022 720p.10bit.WEB-DL.2CH.x265 / 1080p.10bit.WEB-DL.2CH.x265 Direct Download](https://www.1tamilmv.team/index.php?/forums/topic/167341-thank-you-2022-720p10bitweb-dl2chx265-1080p10bitweb-dl2chx265-direct-download/&do=findComment&comment=333432)
+- [Wrong Place &lpar;2022&rpar; Telugu HDRip - [720p - x264 - Fan Dub - 800MB | x264 - 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167340-wrong-place-2022-telugu-hdrip-720p-x264-fan-dub-800mb-x264-400mb/&do=findComment&comment=333431)
+- [Wrong Place &lpar;2022&rpar; Tamil HDRip - [720p - x264 - Fan Dub - 800MB | x264 - 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167339-wrong-place-2022-tamil-hdrip-720p-x264-fan-dub-800mb-x264-400mb/&do=findComment&comment=333430)
+- [Driver Jamuna - Promo Song  - Cool Dude - 4K - DD5.1 + DTSHDMA 5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; - 399Mb](https://www.1tamilmv.team/index.php?/forums/topic/167338-driver-jamuna-promo-song-cool-dude-4k-dd51-dtshdma-51-lossless-24bit-flac-upmix-399mb/&do=findComment&comment=333429)
+- [Laal Singh Chaddha	Hindi HDCAM watch online download](https://www.1tamilmv.team/index.php?/forums/topic/167337-laal-singh-chaddha%09hindi-hdcam-watch-online-download/&do=findComment&comment=333428)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
