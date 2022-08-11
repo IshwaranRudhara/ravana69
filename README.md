@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Raja Kaiya Vecha &lpar;1990&rpar; - Tamil - Oriental Records - ORI/AAMS CD 282 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraaja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167355-raja-kaiya-vecha-1990-tamil-oriental-records-oriaams-cd-282-true-mp3-441khz-16bit-320kbps-ilaiyaraaja-musical/&do=findComment&comment=333452)
+- [Gargi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - &lpar;Tamil + Hindi&rpar; - 12GB - 8.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167350-gargi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-tamil-hindi-12gb-85gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333451)
+- [Jeans&lpar;1998&rpar;-1080P-Bluray-Logan&#39;s Cut-Tamil DTSMA 5.1, DOLBY TRUEHD 5.1, DTS 5.1, DOLBY DIGITAL-AVC-GDRIVE &amp; FULL ALBUM IN DTSMA 5.1](https://www.1tamilmv.team/index.php?/forums/topic/167354-jeans1998-1080p-bluray-logans-cut-tamil-dtsma-51-dolby-truehd-51-dts-51-dolby-digital-avc-gdrive-full-album-in-dtsma-51/&do=findComment&comment=333450)
 - [Gargi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - &lpar;Tamil + Hindi&rpar; - 12GB - 8.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167350-gargi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-tamil-hindi-12gb-85gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333449)
 - [Jeans&lpar;1998&rpar;-1080P-Bluray-Logan&#39;s Cut-Tamil DTSMA 5.1, DOLBY TRUEHD 5.1, DTS 5.1, DOLBY DIGITAL-AVC-GDRIVE &amp; FULL ALBUM IN DTSMA 5.1](https://www.1tamilmv.team/index.php?/forums/topic/167354-jeans1998-1080p-bluray-logans-cut-tamil-dtsma-51-dolby-truehd-51-dts-51-dolby-digital-avc-gdrive-full-album-in-dtsma-51/&do=findComment&comment=333448)
-- [Gargi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - &lpar;Tamil + Hindi&rpar; - 12GB - 8.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167350-gargi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-tamil-hindi-12gb-85gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333447)
-- [Choodiwala Part 2 Ullu Web Series 18+](https://www.1tamilmv.team/index.php?/forums/topic/165458-choodiwala-part-2-ullu-web-series-18/&do=findComment&comment=333446)
-- [Primeshots UnRated Webseries Hindi](https://www.1tamilmv.team/index.php?/forums/topic/167054-primeshots-unrated-webseries-hindi/&do=findComment&comment=333445)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
