@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Minions: The Rise of Gru &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Telugu + Tamil + Hindi + English&rpar; - 5GB - 2.8GB &amp; 1.2GB | x264 - 450MB] - ESub - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167396-minions-the-rise-of-gru-2022-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-telugu-tamil-hindi-english-5gb-28gb-12gb-x264-450mb-esub-gdrivelinks/&do=findComment&comment=333505)
+- [Tesher x Jason Derulo - Jalebi Baby &lpar;Official Video&rpar; - 1080P - DD5.1 Upmix - ESub - 111MB](https://www.1tamilmv.team/index.php?/forums/topic/162167-tesher-x-jason-derulo-jalebi-baby-official-video-1080p-dd51-upmix-esub-111mb/&do=findComment&comment=333504)
+- [Myriam Fares - Goumi - 1080P - DD5.1 + DTSHDMA5.1 &lpar;Lossless Flac Upmix&rpar; - ESub - 196MB](https://www.1tamilmv.team/index.php?/forums/topic/167395-myriam-fares-goumi-1080p-dd51-dtshdma51-lossless-flac-upmix-esub-196mb/&do=findComment&comment=333503)
+- [Holy Wound &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 850MB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167394-holy-wound-2022-malayalam-true-web-dl-1080p-720p-avc-16gb-850mb-x264-600mb-300mb-esub/&do=findComment&comment=333502)
 - [Gargi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - &lpar;Tamil + Hindi&rpar; - 12GB - 8.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167350-gargi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-tamil-hindi-12gb-85gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333501)
-- [Raksha Bandhan &lpar;2022&rpar; Hindi Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167393-raksha-bandhan-2022-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=333500)
-- [Nna Thaan Case Kodu &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167392-nna-thaan-case-kodu-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=333499)
-- [Malik &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167391-malik-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333498)
-- [Maha Manishi &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167390-maha-manishi-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333497)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
