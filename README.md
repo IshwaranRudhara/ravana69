@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Macherla Niyojakavargam &lpar;2022&rpar; DVDScr Telugu](https://www.1tamilmv.team/index.php?/forums/topic/167431-macherla-niyojakavargam-2022-dvdscr-telugu/&do=findComment&comment=333546)
+- [Hello World &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 4.2GB &amp; 1.6GB] - [x264 - 700MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167430-hello-world-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-42gb-16gb-x264-700mb-esub/&do=findComment&comment=333545)
 - [Emoji &lpar;2022&rpar; S01 EP&lpar;01-07&rpar; Tamil - HQ HDRip - 480p ,720p ,1080p- x264 - &lpar;DD+ 5.1 - 192Kbps &amp; AAC 2.0&rpar; - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167429-emoji-2022-s01-ep01-07-tamil-hq-hdrip-480p-720p-1080p-x264-dd-51-192kbps-aac-20-sf-gdrive/&do=findComment&comment=333544)
 - [GARGI 2022 TAMIL HDRip 4K, 1080p, 720p &amp; Rips Online Mdisk](https://www.1tamilmv.team/index.php?/forums/topic/167428-gargi-2022-tamil-hdrip-4k-1080p-720p-rips-online-mdisk/&do=findComment&comment=333543)
 - [[GDrive 💌] Day Shift &lpar;2022&rpar; TRUE WEB-DL - 1080p HQ - 720p AVC - UNTOUCHED - &lpar;DD+ 5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng &lpar;Atmos&rpar;] - 7.4GB 4.4GB 2GB 1.4GB - MSub]](https://www.1tamilmv.team/index.php?/forums/topic/167427-gdrive-%F0%9F%92%8C-day-shift-2022-true-web-dl-1080p-hq-720p-avc-untouched-dd-51-640kbps-tamil-telugu-hindi-eng-atmos-74gb-44gb-2gb-14gb-msub/&do=findComment&comment=333542)
-- [[GDrive 💌] Minions: The Rise of Gru &lpar;2022&rpar; HQ HDRip - 2160p UHD - HEVC - Original Audios &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 5GB -2.8GB 1.2GB 450MB ESub]](https://www.1tamilmv.team/index.php?/forums/topic/167426-gdrive-%F0%9F%92%8C-minions-the-rise-of-gru-2022-hq-hdrip-2160p-uhd-hevc-original-audios-dd51-640kbps-tamil-telugu-hindi-eng-5gb-28gb-12gb-450mb-esub/&do=findComment&comment=333541)
-- [[GDrive 💥] Gargi &lpar;2022&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+ 5.1 ATMOS - 448Kbps &amp; AAC 2.0&rpar; - 8.5GB 2.5GB 1.4 GB  850MB ESub]](https://www.1tamilmv.team/index.php?/forums/topic/167425-gdrive-%F0%9F%92%A5-gargi-2022-tamil-true-web-dl-1080p-avc-untouched-dd-51-atmos-448kbps-aac-20-85gb-25gb-14-gb-850mb-esub/&do=findComment&comment=333540)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
