@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [༒   Viruman &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167436-%E0%BC%92-viruman-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio-google-drive/&do=findComment&comment=333555)
 - [Macherla Niyojakavargam &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167435-macherla-niyojakavargam-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333554)
 - [Day Shift &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.4GB - 2GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167407-day-shift-2022-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-44gb-2gb-14gb-900mb-x264-700mb-450mb-250mb-esub/&do=findComment&comment=333553)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.team/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333552)
 - [Cadaver &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 18GB - 5.1GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167356-cadaver-2022-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-tamil-telugu-malayalam-kannada-18gb-51gb-26gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=333551)
-- [Akhil Akkineni Hindi Movies Collection](https://www.1tamilmv.team/index.php?/forums/topic/167434-akhil-akkineni-hindi-movies-collection/&do=findComment&comment=333550)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
