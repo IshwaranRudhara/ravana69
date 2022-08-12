@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Maha Manishi &lpar;2022&rpar; Telugu AHA TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.7GB - 2.4GB - 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167383-maha-manishi-2022-telugu-aha-true-web-dl-4k-1080p-720p-hevc-avc-37gb-24gb-12gb-x264-700mb-400mb-250mb-esub-gdrivelinks/&do=findComment&comment=333487)
-- [Annamalai &lpar;1992&rpar; - Tamil - Lahari - LRCD 1004 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Deva Musical](https://www.1tamilmv.team/index.php?/forums/topic/167382-annamalai-1992-tamil-lahari-lrcd-1004-true-mp3-441khz-16bit-320kbps-deva-musical/&do=findComment&comment=333486)
-- [Bairavaa &lpar;2016&rpar; - Tamil - Lahari Music - LRCD 4536 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Santhosh Narayanan Musical](https://www.1tamilmv.team/index.php?/forums/topic/167381-bairavaa-2016-tamil-lahari-music-lrcd-4536-true-mp3-441khz-16bit-320kbps-santhosh-narayanan-musical/&do=findComment&comment=333485)
-- [Irudhi Suttru &lpar;2016&rpar; - Tamil - Lahari Music - T-Series - LRCD 4520 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Santhosh Narayanan Musical](https://www.1tamilmv.team/index.php?/forums/topic/167380-irudhi-suttru-2016-tamil-lahari-music-t-series-lrcd-4520-true-mp3-441khz-16bit-320kbps-santhosh-narayanan-musical/&do=findComment&comment=333484)
-- [Hero &lpar;2019&rpar; - Tamil - Lahari Music - LRCD 4539 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Yuvan Shankar Raja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167379-hero-2019-tamil-lahari-music-lrcd-4539-true-mp3-441khz-16bit-320kbps-yuvan-shankar-raja-musical/&do=findComment&comment=333483)
+- [Gargi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - &lpar;Tamil + Hindi&rpar; - 12GB - 8.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167350-gargi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-tamil-hindi-12gb-85gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333501)
+- [Raksha Bandhan &lpar;2022&rpar; Hindi Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167393-raksha-bandhan-2022-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=333500)
+- [Nna Thaan Case Kodu &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167392-nna-thaan-case-kodu-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=333499)
+- [Malik &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167391-malik-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333498)
+- [Maha Manishi &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167390-maha-manishi-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333497)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
