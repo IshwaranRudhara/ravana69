@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maha Manishi &lpar;2022&rpar; Telugu AHA TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.7GB - 2.4GB - 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167383-maha-manishi-2022-telugu-aha-true-web-dl-4k-1080p-720p-hevc-avc-37gb-24gb-12gb-x264-700mb-400mb-250mb-esub-gdrivelinks/&do=findComment&comment=333487)
 - [Annamalai &lpar;1992&rpar; - Tamil - Lahari - LRCD 1004 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Deva Musical](https://www.1tamilmv.team/index.php?/forums/topic/167382-annamalai-1992-tamil-lahari-lrcd-1004-true-mp3-441khz-16bit-320kbps-deva-musical/&do=findComment&comment=333486)
 - [Bairavaa &lpar;2016&rpar; - Tamil - Lahari Music - LRCD 4536 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Santhosh Narayanan Musical](https://www.1tamilmv.team/index.php?/forums/topic/167381-bairavaa-2016-tamil-lahari-music-lrcd-4536-true-mp3-441khz-16bit-320kbps-santhosh-narayanan-musical/&do=findComment&comment=333485)
 - [Irudhi Suttru &lpar;2016&rpar; - Tamil - Lahari Music - T-Series - LRCD 4520 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Santhosh Narayanan Musical](https://www.1tamilmv.team/index.php?/forums/topic/167380-irudhi-suttru-2016-tamil-lahari-music-t-series-lrcd-4520-true-mp3-441khz-16bit-320kbps-santhosh-narayanan-musical/&do=findComment&comment=333484)
 - [Hero &lpar;2019&rpar; - Tamil - Lahari Music - LRCD 4539 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Yuvan Shankar Raja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167379-hero-2019-tamil-lahari-music-lrcd-4539-true-mp3-441khz-16bit-320kbps-yuvan-shankar-raja-musical/&do=findComment&comment=333483)
-- [Pattas &lpar;2020&rpar; - Tamil - Lahari Music - LRCD 4545 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Vivek - Mervin Musical](https://www.1tamilmv.team/index.php?/forums/topic/167378-pattas-2020-tamil-lahari-music-lrcd-4545-true-mp3-441khz-16bit-320kbps-vivek-mervin-musical/&do=findComment&comment=333482)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
