@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Gargi &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.2GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167405-gargi-2022-telugu-original-version-true-web-dl-1080p-720p-avc-22gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333514)
-- [Viruman &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167404-viruman-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333513)
-- [COFFEE WITH KADHAL 2022 - THIAYGI BOYS MUSIC VIDEO HD1080P WITH 5.1 DTS &amp; 2.0 STEREO.](https://www.1tamilmv.team/index.php?/forums/topic/167403-coffee-with-kadhal-2022-thiaygi-boys-music-video-hd1080p-with-51-dts-20-stereo/&do=findComment&comment=333512)
-- [Star Wars Collection 720p DSNP WEB-DL x265 &lpar;AAC 2.0 - 128Kbps&rpar; [Tel + Tam + Hin + Eng] MSub](https://www.1tamilmv.team/index.php?/forums/topic/167402-star-wars-collection-720p-dsnp-web-dl-x265-aac-20-128kbps-tel-tam-hin-eng-msub/&do=findComment&comment=333511)
-- [Daredevil Season 01-Season 03 #English  720p HEVC](https://www.1tamilmv.team/index.php?/forums/topic/167401-daredevil-season-01-season-03-english%C2%A0-720p-hevc/&do=findComment&comment=333510)
+- [​​​​​​​Never Have I Ever &lpar;2022&rpar; S03 E[01-10] 1080p NF WEB-DL [ Hin + Eng] DDP5.1 x264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167418-%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8Bnever-have-i-ever-2022-s03-e01-10-1080p-nf-web-dl-hin-eng-ddp51-x264-sf-gdrive/&do=findComment&comment=333532)
+- [The Warriorr &lpar;2022&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167294-the-warriorr-2022-tamil-hd-1080p-720p-x264-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333531)
+- [Shabaash Mithu &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi&rpar; - 5.7GB - 4.2GB - 2GB &amp; 1.4GB] - [x264 - 800MB - 500MB &amp; 300MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167363-shabaash-mithu-2022-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-57gb-42gb-2gb-14gb-x264-800mb-500mb-300mb-esub/&do=findComment&comment=333530)
+- [Gargi &lpar;2022&rpar; Telugu SonyLiv TRUE WEB-DL - [1080p &amp; 720p &amp; 360p - AVC - AAC 2.0 - 2GB &amp; 650MB - 300MB] - ESub - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167417-gargi-2022-telugu-sonyliv-true-web-dl-1080p-720p-360p-avc-aac-20-2gb-650mb-300mb-esub-gdrivelinks/&do=findComment&comment=333529)
+- [Panni Kutty &lpar;2022&rpar; Tamil Proper TRUE WEB-DL - [1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.4GB - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.team/index.php?/forums/topic/167369-panni-kutty-2022-tamil-proper-true-web-dl-1080p-720p-hevc-avc-dd51-192kbps-44gb-23gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=333528)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
