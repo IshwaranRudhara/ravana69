@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gargi &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.2GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167405-gargi-2022-telugu-original-version-true-web-dl-1080p-720p-avc-22gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333514)
+- [Viruman &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167404-viruman-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333513)
 - [COFFEE WITH KADHAL 2022 - THIAYGI BOYS MUSIC VIDEO HD1080P WITH 5.1 DTS &amp; 2.0 STEREO.](https://www.1tamilmv.team/index.php?/forums/topic/167403-coffee-with-kadhal-2022-thiaygi-boys-music-video-hd1080p-with-51-dts-20-stereo/&do=findComment&comment=333512)
 - [Star Wars Collection 720p DSNP WEB-DL x265 &lpar;AAC 2.0 - 128Kbps&rpar; [Tel + Tam + Hin + Eng] MSub](https://www.1tamilmv.team/index.php?/forums/topic/167402-star-wars-collection-720p-dsnp-web-dl-x265-aac-20-128kbps-tel-tam-hin-eng-msub/&do=findComment&comment=333511)
 - [Daredevil Season 01-Season 03 #English  720p HEVC](https://www.1tamilmv.team/index.php?/forums/topic/167401-daredevil-season-01-season-03-english%C2%A0-720p-hevc/&do=findComment&comment=333510)
-- [The Karate Kid &lpar;2010&rpar; - [BDRip - 720p - x264 - &lpar;Tam + Tel + Hin + Eng&rpar; - AC3 - 1GB - E-Subs]](https://www.1tamilmv.team/index.php?/forums/topic/167400-the-karate-kid-2010-bdrip-720p-x264-tam-tel-hin-eng-ac3-1gb-e-subs/&do=findComment&comment=333509)
-- [Robin B Hood &lpar;2006&rpar; - [BDRip - 720p - x264 - &lpar;Tam + Tel + Hin + Eng + Chi&rpar; - AC3 - 1.2GB - E-Subs]](https://www.1tamilmv.team/index.php?/forums/topic/167399-robin-b-hood-2006-bdrip-720p-x264-tam-tel-hin-eng-chi-ac3-12gb-e-subs/&do=findComment&comment=333508)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
