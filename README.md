@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Gargi &lpar;2022&rpar; Malayalam &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167422-gargi-2022-malayalam-original-version-true-web-dl-1080p-720p-avc-2gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333536)
+- [Day Shift &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.4GB - 2GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167407-day-shift-2022-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-44gb-2gb-14gb-900mb-x264-700mb-450mb-250mb-esub/&do=findComment&comment=333538)
+- [Gargi &lpar;2022&rpar; Malayalam &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167423-gargi-2022-malayalam-original-version-true-web-dl-1080p-720p-avc-2gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333537)
 - [Day Shift &lpar;2022&rpar; NF TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Telugu + Hindi + Tamil + English&rpar; - 7GB - 5GB - 2GB - 1.3GB &amp; 850MB] - [x264 - 500MB] - ESub - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167421-day-shift-2022-nf-true-web-dl-1080p-720p-avc-telugu-hindi-tamil-english-7gb-5gb-2gb-13gb-850mb-x264-500mb-esub-gdrivelinks/&do=findComment&comment=333535)
 - [Simhadri &lpar;2003&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167420-simhadri-2003-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=333534)
 - [Viruman &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167419-viruman-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=333533)
-- [​​​​​​​Never Have I Ever &lpar;2022&rpar; S03 E[01-10] 1080p NF WEB-DL [ Hin + Eng] DDP5.1 x264 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167418-%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8Bnever-have-i-ever-2022-s03-e01-10-1080p-nf-web-dl-hin-eng-ddp51-x264-sf-gdrive/&do=findComment&comment=333532)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
