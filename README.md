@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Villu &lpar;2008&rpar; - Tamil - Ayngaran Music - AnAk Audio - AACD 005 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Devi Sri Prasad Musical](https://www.1tamilmv.team/index.php?/forums/topic/167465-villu-2008-tamil-ayngaran-music-anak-audio-aacd-005-true-mp3-441khz-16bit-320kbps-devi-sri-prasad-musical/&do=findComment&comment=333610)
-- [📌 Okka Magaadu &lpar;2007&rpar; Telugu - 720p - AMZN - WEB-DL - H264 - DD5.1org + Esub - 3.2GB - 📣FirstOnNET](https://www.1tamilmv.team/index.php?/forums/topic/167464-%F0%9F%93%8C-okka-magaadu-2007-telugu-720p-amzn-web-dl-h264-dd51org-esub-32gb-%F0%9F%93%A3firstonnet/&do=findComment&comment=333609)
-- [Aranmanai Kili &lpar;1993&rpar; - Tamil - Pyramid - Raja - CD PYR 8061 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Illaiyaraaja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167463-aranmanai-kili-1993-tamil-pyramid-raja-cd-pyr-8061-true-mp3-441khz-16bit-320kbps-illaiyaraaja-musical/&do=findComment&comment=333608)
-- [Vetri Vizha &lpar;1989&rpar; - Tamil - Eagle - CD 013 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraaja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167462-vetri-vizha-1989-tamil-eagle-cd-013-true-mp3-441khz-16bit-320kbps-ilaiyaraaja-musical/&do=findComment&comment=333607)
-- [Paattukku Oru Thalaivan &lpar;1989&rpar; - Tamil - Ramiy Records - ACD 1165 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167461-paattukku-oru-thalaivan-1989-tamil-ramiy-records-acd-1165-true-mp3-441khz-16bit-320kbps-ilaiyaraja-musical/&do=findComment&comment=333606)
+- [Manmadhan &lpar;2004&rpar; Tamil HD - [#1080P - 10.5GB - 5.2GB - 2.6GB] - [#720p - 1.7GB] - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167472-manmadhan-2004-tamil-hd-1080p-105gb-52gb-26gb-720p-17gb-google-drive/&do=findComment&comment=333618)
+- [Cobra &lpar;2022&rpar; Tamil Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.team/index.php?/forums/topic/167471-cobra-2022-tamil-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=333617)
+- [47] Charmsukh : Tawa Garam Part 2 [2022] Hindi](https://www.1tamilmv.team/index.php?/forums/topic/167470-47-charmsukh-tawa-garam-part-2-2022-hindi/&do=findComment&comment=333616)
+- [Dasavatharam&lpar;2008&rpar;-1080P-Tamil Dolby Digital 5.1&lpar;640KBPS&rpar;, DTS 5.1, DTSMA 5.1, Dolby TRUEHD~AVC&lpar;GDRIVE&rpar;](https://www.1tamilmv.team/index.php?/forums/topic/167469-dasavatharam2008-1080p-tamil-dolby-digital-51640kbps-dts-51-dtsma-51-dolby-truehd~avcgdrive/&do=findComment&comment=333615)
+- [48] Charmsukh : Chawl House S03 Part 1 [2022] Hindi](https://www.1tamilmv.team/index.php?/forums/topic/167468-48-charmsukh-chawl-house-s03-part-1-2022-hindi/&do=findComment&comment=333614)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
