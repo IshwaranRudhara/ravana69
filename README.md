@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Simhadri &lpar;2003&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167420-simhadri-2003-telugu-music-video-album-1080p-web-hd-untouched-avc-dd-51-448kbps-e-sub-by-beast-uk/&do=findComment&comment=333593)
-- [Thallumaala &lpar;2022&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB &amp; 1.4GB| x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167408-thallumaala-2022-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333592)
-- [[Gdrive Links] 83 [2021] Multi Audio [Telugu Tamil Hindi Kannada Malayalam]](https://www.1tamilmv.team/index.php?/forums/topic/167456-gdrive-links-83-2021-multi-audio-telugu-tamil-hindi-kannada-malayalam/&do=findComment&comment=333591)
-- [99 Songs [2019] Multi Audio [Telugu Tamil Hindi] Gdrive Links](https://www.1tamilmv.team/index.php?/forums/topic/167455-99-songs-2019-multi-audio-telugu-tamil-hindi-gdrive-links/&do=findComment&comment=333590)
-- [Kaarthikeya 2 &lpar; 2022 &rpar; HQ DVDSCR - 1080P - ENTRY SCENE](https://www.1tamilmv.team/index.php?/forums/topic/167454-kaarthikeya-2-2022-hq-dvdscr-1080p-entry-scene/&do=findComment&comment=333589)
+- [Villu &lpar;2008&rpar; - Tamil - Ayngaran Music - AnAk Audio - AACD 005 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Devi Sri Prasad Musical](https://www.1tamilmv.team/index.php?/forums/topic/167465-villu-2008-tamil-ayngaran-music-anak-audio-aacd-005-true-mp3-441khz-16bit-320kbps-devi-sri-prasad-musical/&do=findComment&comment=333610)
+- [📌 Okka Magaadu &lpar;2007&rpar; Telugu - 720p - AMZN - WEB-DL - H264 - DD5.1org + Esub - 3.2GB - 📣FirstOnNET](https://www.1tamilmv.team/index.php?/forums/topic/167464-%F0%9F%93%8C-okka-magaadu-2007-telugu-720p-amzn-web-dl-h264-dd51org-esub-32gb-%F0%9F%93%A3firstonnet/&do=findComment&comment=333609)
+- [Aranmanai Kili &lpar;1993&rpar; - Tamil - Pyramid - Raja - CD PYR 8061 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Illaiyaraaja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167463-aranmanai-kili-1993-tamil-pyramid-raja-cd-pyr-8061-true-mp3-441khz-16bit-320kbps-illaiyaraaja-musical/&do=findComment&comment=333608)
+- [Vetri Vizha &lpar;1989&rpar; - Tamil - Eagle - CD 013 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraaja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167462-vetri-vizha-1989-tamil-eagle-cd-013-true-mp3-441khz-16bit-320kbps-ilaiyaraaja-musical/&do=findComment&comment=333607)
+- [Paattukku Oru Thalaivan &lpar;1989&rpar; - Tamil - Ramiy Records - ACD 1165 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Ilaiyaraja Musical](https://www.1tamilmv.team/index.php?/forums/topic/167461-paattukku-oru-thalaivan-1989-tamil-ramiy-records-acd-1165-true-mp3-441khz-16bit-320kbps-ilaiyaraja-musical/&do=findComment&comment=333606)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
