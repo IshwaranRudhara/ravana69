@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kadamaiyai Sei &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167444-kadamaiyai-sei-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=333564)
-- [Thallumaala &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167443-thallumaala-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=333563)
-- [Karthikeya [2014] Dual Audio [Hindi Telugu] Gdrive Links](https://www.1tamilmv.team/index.php?/forums/topic/167442-karthikeya-2014-dual-audio-hindi-telugu-gdrive-links/&do=findComment&comment=333562)
-- [Raksha Bandhan 2022 PreDvd V2 720p Hindi AAC 2.0 x264 ESub - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167441-raksha-bandhan-2022-predvd-v2-720p-hindi-aac-20-x264-esub-grive%C2%A0/&do=findComment&comment=333561)
-- [SINTHAMAL SITHARAMAL 2003 MOVIE- SATRU MUN KIDAITHA VIDEO SONG UPSCALED HD1080P WITH REMASTERD 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167440-sinthamal-sitharamal-2003-movie-satru-mun-kidaitha-video-song-upscaled-hd1080p-with-remasterd-51-dts/&do=findComment&comment=333560)
+- [Thank You &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 11.1GB - 8.5GB - 6.5GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167297-thank-you-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-111gb-85gb-65gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333570)
+- [Maha Manishi &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 3.8GB - 2.4GB - 1.3GB &amp; 780MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167361-maha-manishi-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-38gb-24gb-13gb-780mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333569)
+- [Malik &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 4.9GB - 3.1GB - 1.6GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167364-malik-2022-telugu-true-web-dl-4k-1080p-720p-hevc-avc-49gb-31gb-16gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=333568)
+- [Gargi &lpar;2022&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.2GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167405-gargi-2022-telugu-original-version-true-web-dl-1080p-720p-avc-22gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333567)
+- [Cadaver &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 18GB - 5.1GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167356-cadaver-2022-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-18gb-51gb-26gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=333566)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
