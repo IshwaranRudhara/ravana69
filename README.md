@@ -1,11 +1,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Samurai - Moongil Kaadugale - 4K - DD5.1 + DTSHDMA 5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; - 895MB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167448-samurai-moongil-kaadugale-4k-dd51-dtshdma-51-lossless-24bit-flac-upmix-895mb-gdrive/&do=findComment&comment=333582)
-- [Pithamagan - Elangathu - 4K - DD5.1 + DTSHDMA 5.1 &lpar;Lossless FLAC Upmix&rpar; - 811MB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167447-pithamagan-elangathu-4k-dd51-dtshdma-51-lossless-flac-upmix-811mb-gdrive/&do=findComment&comment=333581)
-- [Kadamaiyai Sei &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167409-kadamaiyai-sei-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333580)
-- [Baasha &lpar;1995&rpar; 4K WEB DL H.264 [Tamil DD5.1+Telugu AAC 2.0] - 10GB [GDrive]](https://www.1tamilmv.team/index.php?/forums/topic/167446-baasha-1995-4k-web-dl-h264-tamil-dd51telugu-aac-20-10gb-gdrive/&do=findComment&comment=333579)
-- [Kadamaiyai Sei &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167409-kadamaiyai-sei-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333578)
+- [Hello World &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 4.2GB &amp; 1.6GB]  - ESub - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167452-hello-world-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-42gb-16gb%C2%A0-esub-sf-gdrive/&do=findComment&comment=333587)
+- [Nandhavana Theru &lpar;1995&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167451-nandhavana-theru-1995tamil480phdtvx264aac20-22gb-gdrive/&do=findComment&comment=333586)
+- [Hello World &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 4.2GB &amp; 1.6GB] - [x264 - 700MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167430-hello-world-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-42gb-16gb-x264-700mb-esub/&do=findComment&comment=333585)
+- [Laal Singh Chaddha 2022 PreDvd V2 720p Hindi AAC 2.0 x264 ESub - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167450-laal-singh-chaddha-2022-predvd-v2-720p-hindi-aac-20-x264-esub-grive%C2%A0/&do=findComment&comment=333584)
+- [Loveyatri.The.Journey.of.Love.2018.1080p.AMZN.WEB-DL.DDP5.1.H.264 - UNTOUCHED - GRIVE  - 8GB](https://www.1tamilmv.team/index.php?/forums/topic/167449-loveyatrithejourneyoflove20181080pamznweb-dlddp51h264-untouched-grive%C2%A0-8gb/&do=findComment&comment=333583)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
