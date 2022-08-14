@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pataas &lpar;2015&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; iTunes 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;384Kbps&rpar;] By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167487-pataas-2015-telugu-music-video-album-itunes-1080p-web-hd-untouched-avc-dd-51-384kbps-by-beast-uk/&do=findComment&comment=333639)
+- [Dasavatharam&lpar;2008&rpar;-1080P-Tamil Dolby Digital 5.1&lpar;640KBPS&rpar;, DTS 5.1, DTSMA 5.1, Dolby TRUEHD~AVC&lpar;GDRIVE&rpar;](https://www.1tamilmv.team/index.php?/forums/topic/167469-dasavatharam2008-1080p-tamil-dolby-digital-51640kbps-dts-51-dtsma-51-dolby-truehd~avcgdrive/&do=findComment&comment=333638)
+- [Race Gurram &lpar;2014&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; GPlay 1080p WEB-HD UNTOUCHED - AVC - [DTS-Express &amp; DD+5.1 &lpar;384Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167486-race-gurram-2014-telugu-music-video-album-gplay-1080p-web-hd-untouched-avc-dts-express-dd51-384kbps-e-sub-by-beast-uk/&do=findComment&comment=333637)
 - [Karthikeya 2 &lpar;2022&rpar; Telugu Pre-DVD - [1080p &amp; 720p - x264 - 2.3GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167485-karthikeya-2-2022-telugu-pre-dvd-1080p-720p-x264-23gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333636)
 - [POKIRI 2006 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167481-pokiri-2006-telugu-movie-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=333635)
-- [POKIRI 2006 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167481-pokiri-2006-telugu-movie-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=333634)
-- [ANNIYAN 2005 TAMIL MOVIE REMASTERD VIDEO SONGS &lpar;AMAZON&rpar; HD1080P WITH 5.1 DTS](https://www.1tamilmv.team/index.php?/forums/topic/167482-anniyan-2005-tamil-movie-remasterd-video-songs-amazon-hd1080p-with-51-dts/&do=findComment&comment=333633)
-- [Karthikeya 2 &lpar;2022&rpar; Hindi HQ PreDVD - [720p - x264 - AAC - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167484-karthikeya-2-2022-hindi-hq-predvd-720p-x264-aac-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333632)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
