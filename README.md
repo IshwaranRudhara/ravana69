@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Viruman &lpar;2022&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio {𝐃𝐢𝐫𝐞𝐜𝐭 𝐋𝐢𝐧𝐤}](https://www.1tamilmv.team/index.php?/forums/topic/167488-viruman-2022-tamil-new-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio-%F0%9D%90%83%F0%9D%90%A2%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD-%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4/&do=findComment&comment=333640)
 - [Pataas &lpar;2015&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; iTunes 1080p WEB-HD UNTOUCHED - AVC - [DD 5.1 &lpar;384Kbps&rpar;] By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167487-pataas-2015-telugu-music-video-album-itunes-1080p-web-hd-untouched-avc-dd-51-384kbps-by-beast-uk/&do=findComment&comment=333639)
 - [Dasavatharam&lpar;2008&rpar;-1080P-Tamil Dolby Digital 5.1&lpar;640KBPS&rpar;, DTS 5.1, DTSMA 5.1, Dolby TRUEHD~AVC&lpar;GDRIVE&rpar;](https://www.1tamilmv.team/index.php?/forums/topic/167469-dasavatharam2008-1080p-tamil-dolby-digital-51640kbps-dts-51-dtsma-51-dolby-truehd~avcgdrive/&do=findComment&comment=333638)
 - [Race Gurram &lpar;2014&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; GPlay 1080p WEB-HD UNTOUCHED - AVC - [DTS-Express &amp; DD+5.1 &lpar;384Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.team/index.php?/forums/topic/167486-race-gurram-2014-telugu-music-video-album-gplay-1080p-web-hd-untouched-avc-dts-express-dd51-384kbps-e-sub-by-beast-uk/&do=findComment&comment=333637)
 - [Karthikeya 2 &lpar;2022&rpar; Telugu Pre-DVD - [1080p &amp; 720p - x264 - 2.3GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167485-karthikeya-2-2022-telugu-pre-dvd-1080p-720p-x264-23gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333636)
-- [POKIRI 2006 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167481-pokiri-2006-telugu-movie-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=333635)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
