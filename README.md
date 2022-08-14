@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [55 Telugu Movies - 1080p WEB DL H.264 DD5.1/DD2.0/AAC ESub 250GB [GDrive]](https://www.1tamilmv.team/index.php?/forums/topic/166477-55-telugu-movies-1080p-web-dl-h264-dd51dd20aac-esub-250gb-gdrive/&do=findComment&comment=333664)
 - [Cobra &lpar;2022&rpar; Tamil Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.team/index.php?/forums/topic/167471-cobra-2022-tamil-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=333663)
 - [Hello World &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu] - 4.2GB &amp; 1.6GB] - [x264 - 700MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167430-hello-world-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-42gb-16gb-x264-700mb-esub/&do=findComment&comment=333662)
 - [Cobra &lpar;2022&rpar; Tamil Complete [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.team/index.php?/forums/topic/167471-cobra-2022-tamil-complete-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=333661)
 - [Day Shift &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.4GB - 2GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167407-day-shift-2022-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-44gb-2gb-14gb-900mb-x264-700mb-450mb-250mb-esub/&do=findComment&comment=333660)
-- [Subhalekhalu &lpar;1998&rpar; Telugu JC TRUE WEB-DL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167504-subhalekhalu-1998-telugu-jc-true-web-dl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-gdrivelinks/&do=findComment&comment=333659)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
