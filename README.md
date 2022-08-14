@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [55 Telugu Movies - 1080p WEB DL H.264 DD5.1/DD2.0/AAC ESub 250GB [GDrive]](https://www.1tamilmv.team/index.php?/forums/topic/166477-55-telugu-movies-1080p-web-dl-h264-dd51dd20aac-esub-250gb-gdrive/&do=findComment&comment=333692)
+- [55 Telugu Movies - 1080p WEB DL H.264 DD5.1/DD2.0/AAC ESub 250GB [GDrive]](https://www.1tamilmv.team/index.php?/forums/topic/166477-55-telugu-movies-1080p-web-dl-h264-dd51dd20aac-esub-250gb-gdrive/&do=findComment&comment=333691)
 - [55 Telugu Movies - 1080p WEB DL H.264 DD5.1/DD2.0/AAC ESub 250GB [GDrive]](https://www.1tamilmv.team/index.php?/forums/topic/166477-55-telugu-movies-1080p-web-dl-h264-dd51dd20aac-esub-250gb-gdrive/&do=findComment&comment=333690)
 - [Nikamma &lpar;2022&rpar; Hindi WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167483-nikamma-2022-hindi-web-dl-1080p-720p-avc-dd51-640kbps-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=333689)
 - [MINNALE 2001 TAMIL MOVIE COMPLETE VIDEO SONGS TRU HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167522-minnale-2001-tamil-movie-complete-video-songs-tru-hd1080p-with-51-dts/&do=findComment&comment=333688)
-- [Money Heist &lpar;2017&rpar; S02 &lpar;01 - 09&rpar; TRUE WEB-DL - [#1080p - #720p - #480p] - [18GB - 4.4GB - 1.1GB - 900MB] - #HEVC / DD5.1 - 10Bit - &lpar;Tamil + Telugu + Hindi + English&rpar; - ESub - Google Drive - MSLeyon](https://www.1tamilmv.team/index.php?/forums/topic/167521-money-heist-2017-s02-01-09-true-web-dl-1080p-720p-480p-18gb-44gb-11gb-900mb-hevc-dd51-10bit-tamil-telugu-hindi-english-esub-google-drive-msleyon/&do=findComment&comment=333687)
-- [Love Next Door &lpar;2022&rpar; Hindi Season 01 ULLU Exclusive Series UnRated](https://www.1tamilmv.team/index.php?/forums/topic/167520-love-next-door-2022-hindi-season-01-ullu-exclusive-series-unrated/&do=findComment&comment=333686)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
