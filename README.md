@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [ANNIYAN 2005 TAMIL MOVIE REMASTERD VIDEO SONGS &lpar;AMAZON&rpar; HD1080P WITH 5.1 DTS](https://www.1tamilmv.team/index.php?/forums/topic/167482-anniyan-2005-tamil-movie-remasterd-video-songs-amazon-hd1080p-with-51-dts/&do=findComment&comment=333633)
+- [Karthikeya 2 &lpar;2022&rpar; Hindi HQ PreDVD - [720p - x264 - AAC - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167484-karthikeya-2-2022-hindi-hq-predvd-720p-x264-aac-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=333632)
+- [Nikamma &lpar;2022&rpar; Hindi WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167483-nikamma-2022-hindi-web-dl-1080p-720p-avc-dd51-640kbps-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=333631)
 - [ANNIYAN 2005 TAMIL MOVIE REMASTERD VIDEO SONGS &lpar;AMAZON&rpar; HD1080P WITH 5.1 DTS](https://www.1tamilmv.team/index.php?/forums/topic/167482-anniyan-2005-tamil-movie-remasterd-video-songs-amazon-hd1080p-with-51-dts/&do=findComment&comment=333630)
 - [POKIRI 2006 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167481-pokiri-2006-telugu-movie-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=333629)
-- [Minions: The Rise of Gru &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 5GB - 2.8GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub - Separate Audios](https://www.1tamilmv.team/index.php?/forums/topic/167480-minions-the-rise-of-gru-2022-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-5gb-28gb-12gb-x264-tam-tel-hin-450mb-esub-separate-audios/&do=findComment&comment=333628)
-- [The Lone Ranger &lpar;2013&rpar; BluRay  Original Audios - AVC / AAC2.0 - [#1080p &amp; #720p - x264 - &lpar;Tamil + Telugu + Hindi + English &rpar; - 9.8GB - 4.5GB - 3.2GB - 2.5GB - 1.4GB] - ESub - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167479-the-lone-ranger-2013-bluray-original-audios-avc-aac20-1080p-720p-x264-tamil-telugu-hindi-english-98gb-45gb-32gb-25gb-14gb-esub-google-drive/&do=findComment&comment=333627)
-- [Endrendrum Kadhal &lpar;1999&rpar; REMASTERED Tamil HD - [#4K - #1080p - #720p] - [8.3GB - 4.5GB - 2.7GB - 1.6GB - 400MB] - MSLeyon - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167478-endrendrum-kadhal-1999-remastered-tamil-hd-4k-1080p-720p-83gb-45gb-27gb-16gb-400mb-msleyon-google-drive/&do=findComment&comment=333626)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
