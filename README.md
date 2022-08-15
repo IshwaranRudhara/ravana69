@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Thallumaala Promo Song - Manavaalan Thug - 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; - 430MB + 150MB](https://www.1tamilmv.team/index.php?/forums/topic/167528-thallumaala-promo-song-manavaalan-thug-4k-dd51-dtshdma51-lossless-24bit-flac-upmix-430mb-150mb/&do=findComment&comment=333702)
-- [Oru Kal Oru Kannadi &lpar;2012&rpar; Tamil WEB HD 1080p AVC x264 2.2GB.mp4](https://www.1tamilmv.team/index.php?/forums/topic/103628-oru-kal-oru-kannadi-2012-tamil-web-hd-1080p-avc-x264-22gbmp4/&do=findComment&comment=333701)
-- [Thinkalazhcha Nishchayam &lpar;2021&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Malayalam + Hindi + Kannada&rpar; - 2.8GB - 1.2GB] - [x264 - 850MB - 450MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167526-thinkalazhcha-nishchayam-2021-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-hindi-kannada-28gb-12gb-x264-850mb-450mb-esub/&do=findComment&comment=333700)
-- [Jeans &lpar;1998&rpar; Original Motion Picture Soundtrack - A.R. Rahman Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 459 MB | 242 MB | 82 MB | 34 MB](https://www.1tamilmv.team/index.php?/forums/topic/167527-jeans-1998-original-motion-picture-soundtrack-ar-rahman-musical-flac-24bit16bit-mp3-320kbps128kbps-459-mb-242-mb-82-mb-34-mb/&do=findComment&comment=333699)
-- [55 Telugu Movies - 1080p WEB DL H.264 DD5.1/DD2.0/AAC ESub 250GB [GDrive]](https://www.1tamilmv.team/index.php?/forums/topic/166477-55-telugu-movies-1080p-web-dl-h264-dd51dd20aac-esub-250gb-gdrive/&do=findComment&comment=333698)
+- [Vaettiya Madichu Kattu &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC](https://www.1tamilmv.team/index.php?/forums/topic/167548-vaettiya-madichu-kattu-1998tamil480phdtvx264aac/&do=findComment&comment=333722)
+- [Vaettiya Madichu Kattu &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC](https://www.1tamilmv.team/index.php?/forums/topic/167547-vaettiya-madichu-kattu-1998tamil480phdtvx264aac/&do=findComment&comment=333721)
+- [Breaking Bad Season 01-05 720p BrRip 2CH x265 HEVC -PSA #English](https://www.1tamilmv.team/index.php?/forums/topic/167546-breaking-bad-season-01-05-720p-brrip-2ch-x265-hevc-psa-english%C2%A0/&do=findComment&comment=333720)
+- [Iron Fist Season 01-02 720p 10bit WEBRip 2CH x265 HEVC -PSA #English](https://www.1tamilmv.team/index.php?/forums/topic/167545-iron-fist-season-01-02-720p-10bit-webrip-2ch-x265-hevc-psa-english%C2%A0/&do=findComment&comment=333719)
+- [Rocketry - The Nambi Effect &lpar;2022&rpar; TRUE WEB-DL - 720p - HEVC - UNTOUCHED - &lpar;DD 5.1 - 192Kbps&rpar; [Tam Tel Kan Mal] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167544-rocketry-the-nambi-effect-2022-true-web-dl-720p-hevc-untouched-dd-51-192kbps-tam-tel-kan-mal-esub/&do=findComment&comment=333718)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
