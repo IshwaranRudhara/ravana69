@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Cobra &lpar;2022&rpar; Tamil Audio launch - 720p HDRip - x264 - AAC - 500MB](https://www.1tamilmv.team/index.php?/forums/topic/167550-cobra-2022-tamil-audio-launch-720p-hdrip-x264-aac-500mb/&do=findComment&comment=333725)
+- [Hawkeye &lpar;2021&rpar; S01 Complete DSNP WEB-DL Multi DDP5.1 Esubs  - 2160p [HDR] | 1080p | 720p - 44 GB | 8 GB | 3 GB + Soundtrack Rips](https://www.1tamilmv.team/index.php?/forums/topic/167549-hawkeye-2021-s01-complete-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr-1080p-720p-44-gb-8-gb-3-gb-soundtrack-rips/&do=findComment&comment=333724)
+- [Marakkuma Nenjam &lpar;From &quot;Vendhu Thanindhathu Kaadu&quot;&rpar; &lpar;2022&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.team/index.php?/forums/topic/167507-marakkuma-nenjam-from-vendhu-thanindhathu-kaadu-2022-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=333723)
 - [Vaettiya Madichu Kattu &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC](https://www.1tamilmv.team/index.php?/forums/topic/167548-vaettiya-madichu-kattu-1998tamil480phdtvx264aac/&do=findComment&comment=333722)
 - [Vaettiya Madichu Kattu &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC](https://www.1tamilmv.team/index.php?/forums/topic/167547-vaettiya-madichu-kattu-1998tamil480phdtvx264aac/&do=findComment&comment=333721)
-- [Breaking Bad Season 01-05 720p BrRip 2CH x265 HEVC -PSA #English](https://www.1tamilmv.team/index.php?/forums/topic/167546-breaking-bad-season-01-05-720p-brrip-2ch-x265-hevc-psa-english%C2%A0/&do=findComment&comment=333720)
-- [Iron Fist Season 01-02 720p 10bit WEBRip 2CH x265 HEVC -PSA #English](https://www.1tamilmv.team/index.php?/forums/topic/167545-iron-fist-season-01-02-720p-10bit-webrip-2ch-x265-hevc-psa-english%C2%A0/&do=findComment&comment=333719)
-- [Rocketry - The Nambi Effect &lpar;2022&rpar; TRUE WEB-DL - 720p - HEVC - UNTOUCHED - &lpar;DD 5.1 - 192Kbps&rpar; [Tam Tel Kan Mal] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167544-rocketry-the-nambi-effect-2022-true-web-dl-720p-hevc-untouched-dd-51-192kbps-tam-tel-kan-mal-esub/&do=findComment&comment=333718)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
