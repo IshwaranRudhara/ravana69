@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Cobra &lpar;2022&rpar; Tamil Audio launch - 720p HDRip - x264 - AAC - 500MB](https://www.1tamilmv.team/index.php?/forums/topic/167550-cobra-2022-tamil-audio-launch-720p-hdrip-x264-aac-500mb/&do=findComment&comment=333725)
-- [Hawkeye &lpar;2021&rpar; S01 Complete DSNP WEB-DL Multi DDP5.1 Esubs  - 2160p [HDR] | 1080p | 720p - 44 GB | 8 GB | 3 GB + Soundtrack Rips](https://www.1tamilmv.team/index.php?/forums/topic/167549-hawkeye-2021-s01-complete-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr-1080p-720p-44-gb-8-gb-3-gb-soundtrack-rips/&do=findComment&comment=333724)
-- [Marakkuma Nenjam &lpar;From &quot;Vendhu Thanindhathu Kaadu&quot;&rpar; &lpar;2022&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.team/index.php?/forums/topic/167507-marakkuma-nenjam-from-vendhu-thanindhathu-kaadu-2022-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=333723)
-- [Vaettiya Madichu Kattu &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC](https://www.1tamilmv.team/index.php?/forums/topic/167548-vaettiya-madichu-kattu-1998tamil480phdtvx264aac/&do=findComment&comment=333722)
-- [Vaettiya Madichu Kattu &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC](https://www.1tamilmv.team/index.php?/forums/topic/167547-vaettiya-madichu-kattu-1998tamil480phdtvx264aac/&do=findComment&comment=333721)
+- [Free Birds &lpar;2013&rpar; Blu-Ray - [1080p &amp; 720p - 1.9GB - 1.2GB] - x264 - Original Audios [Tamil + Telugu + Malayalam + Hindi + Eng] - ESub - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167554-free-birds-2013-blu-ray-1080p-720p-19gb-12gb-x264-original-audios-tamil-telugu-malayalam-hindi-eng-esub-gdrive/&do=findComment&comment=333730)
+- [Hotel For Dogs &lpar;2009&rpar; BluRay - [1080p &amp; 720p - 2.8GB - 1.3GB] - x264 - Original Audios &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - ESub - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167553-hotel-for-dogs-2009-bluray-1080p-720p-28gb-13gb-x264-original-audios-dd51-640kbps-tamil-telugu-hindi-eng-esub-gdrive/&do=findComment&comment=333729)
+- [Aquaman &lpar;2018&rpar; BluRay - [4K &amp; 1080p &amp; 720p - 5.2GB - 3.6GB - 1.9GB] - x264 - &lpar;DD5.1 - 448Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - ESub] - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167552-aquaman-2018-bluray-4k-1080p-720p-52gb-36gb-19gb-x264-dd51-448kbps-tamil-telugu-hindi-eng-esub-gdrive/&do=findComment&comment=333728)
+- [I Am Groot &lpar;2022&rpar; Complete S01 Merged All Files In One File English TRUE WEB-DL - [1080p &amp; 720p - &lpar;DD+5.1 - ATMOS - 768Kbps&rpar; - 1GB - 600MB &amp; 200MB] - ESub [Google Drive]](https://www.1tamilmv.team/index.php?/forums/topic/167551-i-am-groot-2022-complete-s01-merged-all-files-in-one-file-english-true-web-dl-1080p-720p-dd51-atmos-768kbps-1gb-600mb-200mb-esub%C2%A0google-drive/&do=findComment&comment=333727)
+- [Chocolate 2001 /  Imsai Arasan 23 M Pulikesi &lpar;2006&rpar;[Tamil - 480P &amp; 720p HQ HDRip - x264 - 700MB &amp; 1.4GB]](https://www.1tamilmv.team/index.php?/forums/topic/86273-chocolate-2001-%C2%A0-imsai-arasan-23-m-pulikesi-2006tamil-480p-720p-hq-hdrip-x264-700mb-14gb/&do=findComment&comment=333726)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
