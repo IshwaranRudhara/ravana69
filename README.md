@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Top Gun Maverick &lpar;2022&rpar; 480p, 720p &amp; 1080p English HDRip - x264 - AAC - HC-KorSub - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167654-top-gun-maverick-2022-480p-720p-1080p-english-hdrip-x264-aac-hc-korsub-sf-gdrive/&do=findComment&comment=333850)
 - [Top Gun: Maverick &lpar;2022&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - AAC - 2.3GB &amp; 1GB] - [x264 - English - 400MB] - HC-KorSub](https://www.1tamilmv.team/index.php?/forums/topic/167652-top-gun-maverick-2022-english-true-web-dl-1080p-720p-x264-aac-23gb-1gb-x264-english-400mb-hc-korsub/&do=findComment&comment=333849)
 - [Top Gun Maverick &lpar;2022&rpar; 1080p WEB-DL AAC HC-Kor Subs H264 - 5.68 GB + Soundtrack Rips](https://www.1tamilmv.team/index.php?/forums/topic/167653-top-gun-maverick-2022-1080p-web-dl-aac-hc-kor-subs-h264-568-gb-soundtrack-rips/&do=findComment&comment=333848)
 - [Top Gun: Maverick &lpar;2022&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - AAC - 2.3GB &amp; 1GB] - [x264 - English - 400MB] - HC-KorSub](https://www.1tamilmv.team/index.php?/forums/topic/167652-top-gun-maverick-2022-english-true-web-dl-1080p-720p-x264-aac-23gb-1gb-x264-english-400mb-hc-korsub/&do=findComment&comment=333847)
 - [The Boys  &lpar;2019&rpar; S02 &lpar;01-08&rpar; AMZN WEB-DL Original Audios - &lpar;Tamil + Telugu + Hindi + English&rpar; - [#2160p #4K - 59GB] - [#1080p - 35GB] - [#720p - 3.7GB] - [#480p - 1.7GB] - ESubs - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167651-the-boys-2019-s02-01-08-amzn-web-dl-original-audios-tamil-telugu-hindi-english-2160p-4k-59gb-1080p-35gb-720p-37gb-480p-17gb-esubs-google-drive/&do=findComment&comment=333846)
-- [Gaalipata 2 &lpar;2022&rpar; Kannada Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167650-gaalipata-2-2022-kannada-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333845)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
