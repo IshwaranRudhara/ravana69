@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thaalaattu &lpar;1993&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167620-thaalaattu-1993tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=333804)
+- [Okka Magaadu &lpar;2007&rpar; &lpar;Telugu Music VIdeo Album&rpar; - AMZN - WEBDL - H264 - DD5.1&lpar;448Kbps&rpar; - OrgVer - 900MB - Exclusive⚡️ [avatar UnTouched&#39;s]](https://www.1tamilmv.team/index.php?/forums/topic/167287-okka-magaadu-2007-telugu-music-video-album-amzn-webdl-h264-dd51448kbps-orgver-900mb-exclusive%E2%9A%A1%EF%B8%8F-avatar-untoucheds/&do=findComment&comment=333803)
 - [Doraemon: Great Adventure in the Antarctic Kachi Kochi &lpar;2017&rpar; &lpar;BluRay + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Japanese&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167619-doraemon-great-adventure-in-the-antarctic-kachi-kochi-2017-bluray-original-audio-1080p-720p-x264-tamil-telugu-hindi-japanese-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=333802)
 - [Love Next Door &lpar;2022&rpar; Hindi Season 01 ULLU Exclusive Series UnRated](https://www.1tamilmv.team/index.php?/forums/topic/167520-love-next-door-2022-hindi-season-01-ullu-exclusive-series-unrated/&do=findComment&comment=333801)
 - [1](https://www.1tamilmv.team/index.php?/forums/topic/167618-1/&do=findComment&comment=333800)
-- [Cadaver &lpar;2022&rpar; DSNP TRUE WEB-DL - [#4K -#1080p - #720p - #480p - AVC - 10Bit - &lpar;DD5.1 - AAC2.0 - 768Kbps - 192Kbps&rpar; x264 - x265 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 18GB - 9.5GB - 5.8GB - 5.3GB - 3.3GB - 2.3GB - 2.1GB - 1.4GB - 1.2GB] - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167617-cadaver-2022-dsnp-true-web-dl-4k-1080p-720p-480p-avc-10bit-dd51-aac20-768kbps-192kbps-x264-x265-tamil-telugu-hindi-malayalam-kannada-18gb-95gb-58gb-53gb-33gb-23gb-21gb-14gb-12gb-esub/&do=findComment&comment=333799)
-- [Star &lpar;1982&rpar; - Biddu - Hindi - DD5.1 &amp; DTSHDMA 5.1 &lpar;Lossless FLAC Upmix&rpar; - 1.2GB + 439MB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167616-star-1982-biddu-hindi-dd51-dtshdma-51-lossless-flac-upmix-12gb-439mb-gdrive/&do=findComment&comment=333798)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
