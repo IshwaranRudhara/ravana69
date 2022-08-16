@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Muddula Mavayya &lpar;1989&rpar; Telugu ETV.WIN TRUE WEB-DL - [1080p-3GB / 720p-1.6GB / 480p-800MB / 240p-350MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167643-muddula-mavayya-1989-telugu-etvwin-true-web-dl-1080p-3gb-720p-16gb-480p-800mb-240p-350mb-avc-aac-gdrivelinks/&do=findComment&comment=333834)
+- [Rebel Hudugaru &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167642-rebel-hudugaru-2022-kannada-true-web-dl-1080p-720p-avc-23gb-13gb-x264-700mb-400mb/&do=findComment&comment=333833)
+- [Kalyana Ramudu &lpar;2003&rpar; Telugu JC TRUE HDRips - [1080p-2.5GB / 720p-1GB / 576p-500MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167641-kalyana-ramudu-2003-telugu-jc-true-hdrips-1080p-25gb-720p-1gb-576p-500mb-avc-aac-gdrivelinks/&do=findComment&comment=333832)
+- [Dev &lpar;2019&rpar; Tamil - 4K UHD - HEVC - x265 - DD 5.1 - 13.36GB](https://www.1tamilmv.team/index.php?/forums/topic/99696-dev-2019-tamil-4k-uhd-hevc-x265-dd-51-1336gb/&do=findComment&comment=333831)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.team/index.php?/forums/topic/167638-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333830)
-- [Ek Niranjan &lpar;2009&rpar; Telugu ZEE5 TRUE WEBDL - [1080p-2.7GB / 720p-1.8GB / 576p-950MB / 480p-750MB / 500MB] - UNTOUCHED - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167640-ek-niranjan-2009-telugu-zee5-true-webdl-1080p-27gb-720p-18gb-576p-950mb-480p-750mb-500mb-untouched-avc-aac-gdrivelinks/&do=findComment&comment=333829)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.team/index.php?/forums/topic/167638-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333828)
-- [BADRI &lpar;2000&rpar; Telugu SunNxt true WEB-DL - [1080p-5.5GB / 720p-2.7GB / 360p-900MB-500MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167639-badri-2000-telugu-sunnxt-true-web-dl-1080p-55gb-720p-27gb-360p-900mb-500mb-avc-aac-gdrivelinks/&do=findComment&comment=333827)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.team/index.php?/forums/topic/167638-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333826)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
