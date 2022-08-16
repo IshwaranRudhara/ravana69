@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Muddula Mavayya &lpar;1989&rpar; Telugu ETV.WIN TRUE WEB-DL - [1080p-3GB / 720p-1.6GB / 480p-800MB / 240p-350MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167643-muddula-mavayya-1989-telugu-etvwin-true-web-dl-1080p-3gb-720p-16gb-480p-800mb-240p-350mb-avc-aac-gdrivelinks/&do=findComment&comment=333834)
-- [Rebel Hudugaru &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167642-rebel-hudugaru-2022-kannada-true-web-dl-1080p-720p-avc-23gb-13gb-x264-700mb-400mb/&do=findComment&comment=333833)
-- [Kalyana Ramudu &lpar;2003&rpar; Telugu JC TRUE HDRips - [1080p-2.5GB / 720p-1GB / 576p-500MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167641-kalyana-ramudu-2003-telugu-jc-true-hdrips-1080p-25gb-720p-1gb-576p-500mb-avc-aac-gdrivelinks/&do=findComment&comment=333832)
-- [Dev &lpar;2019&rpar; Tamil - 4K UHD - HEVC - x265 - DD 5.1 - 13.36GB](https://www.1tamilmv.team/index.php?/forums/topic/99696-dev-2019-tamil-4k-uhd-hevc-x265-dd-51-1336gb/&do=findComment&comment=333831)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.team/index.php?/forums/topic/167638-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333830)
+- [🔰High Speed Download Links🔰 Doraemon: Great Adventure in the Antarctic Kachi Kochi &lpar;2017&rpar; &lpar;BluRay + Org Auds&rpar; - [1080p &amp; 720p - &lpar;TAM + TEL + HIN + JPN&rpar; - 2GB - 1GB &amp; 450MB]~KTA](https://www.1tamilmv.team/index.php?/forums/topic/167649-%F0%9F%94%B0high-speed-download-links%F0%9F%94%B0-doraemon-great-adventure-in-the-antarctic-kachi-kochi-2017-bluray-org-auds-1080p-720p-tam-tel-hin-jpn-2gb-1gb-450mb~kta/&do=findComment&comment=333841)
+- [Gangster Gangaraju &lpar;2022&rpar; [Tamil + Telugu] Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167648-gangster-gangaraju-2022-tamil-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=333840)
+- [Jo And The Boy &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167647-jo-and-the-boy-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=333839)
+- [Winner &lpar;2017&rpar; - [1080p-12GB-7.5GB] - AMZN - WEBDL - H264/H265 - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167646-winner-2017-1080p-12gb-75gb-amzn-webdl-h264h265-gdrivelinks/&do=findComment&comment=333838)
+- [winner &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167645-winner-2003-tamil-true-web-dl-1080p-720p-avc-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=333837)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
