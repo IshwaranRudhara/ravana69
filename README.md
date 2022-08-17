@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Sridevi.Soda.Center.2021.1080p.WEB-DL.UNCUT.Hindi.Telugu.2.0.H.264 - UNTOUCHED - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167697-sridevisodacenter20211080pweb-dluncuthinditelugu20h264-untouched-grive/&do=findComment&comment=333908)
-- [[GDrive 💌] Kolamavu Kokila &lpar;2018&rpar; 1080p 720p HEVC - Tamil - TRUE WEB-DL - AVC - UNTOUCHED - &lpar;DD5.1 - 448kbps&rpar; - x264 - 3GB  2GB 1.9GB 1.4GB 850MB - ESub]](https://www.1tamilmv.team/index.php?/forums/topic/167696-gdrive-%F0%9F%92%8C-kolamavu-kokila-2018-1080p-720p-hevc-tamil-true-web-dl-avc-untouched-dd51-448kbps-x264-3gb-2gb-19gb-14gb-850mb-esub/&do=findComment&comment=333907)
-- [Maayavan &lpar;2017&rpar; AMZN - WEB-DL - 1080p - Tamil - M4A - x264 - 7GB - MSub](https://www.1tamilmv.team/index.php?/forums/topic/167694-maayavan-2017-amzn-web-dl-1080p-tamil-m4a-x264-7gb-msub/&do=findComment&comment=333906)
-- [Boys S01 &amp; S02  &lpar;2019-20&rpar; 1080p 10bit HEVC [Hindi + Tamil + Telugu + English] DD 5.1 &lpar;192kbps&rpar; - [6.5GB + 7GB G-DRIVE] Ninja 360 Encodes](https://www.1tamilmv.team/index.php?/forums/topic/105393-boys-s01-s02-2019-20-1080p-10bit-hevc-hindi-tamil-telugu-english-dd-51-192kbps-65gb-7gb-g-drive-ninja-360-encodes/&do=findComment&comment=333905)
-- [Thalattu Padava &lpar;1990&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.5GB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167695-thalattu-padava-1990tamil480phdtvx264aac20-15gb-gdrive/&do=findComment&comment=333904)
+- [Makal &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.team/index.php?/forums/topic/167698-makal-2022-malayalam-true-web-dl-1080p-720p-avc-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=333913)
+- [Apsara &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.1GB &amp; 650MB] - [x264 - 350MB]](https://www.1tamilmv.team/index.php?/forums/topic/167680-apsara-2022-malayalam-true-web-dl-1080p-720p-avc-11gb-650mb-x264-350mb/&do=findComment&comment=333912)
+- [NANBAN 2012 MOVIE VIDEO SONGS &lpar;SIMPLY SOUTH&rpar; HD1080P WITH 5.1 DTS&lpar;TAMIL+TELUGU&rpar; DUAL AUDIO.](https://www.1tamilmv.team/index.php?/forums/topic/167699-nanban-2012-movie-video-songs-simply-south-hd1080p-with-51-dtstamiltelugu-dual-audio/&do=findComment&comment=333911)
+- [Perazhagan &lpar;2004&rpar; Tamil 1080p | 720p WEB-DL DD 5.1 &lpar;640kbps &amp; 192kbps&rpar; + HEVC - [14.5GB + 5GB + 2.5GB + 2.3GB + 1.3GB + 750MB] [G-DRIVE] - Ninja 360](https://www.1tamilmv.team/index.php?/forums/topic/111351-perazhagan-2004-tamil-1080p-720p-web-dl-dd-51-640kbps-192kbps-hevc-145gb-5gb-25gb-23gb-13gb-750mb-g-drive-ninja-360/&do=findComment&comment=333910)
+- [Makal &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 8GB - 4.5GB - 3.5GB - 2.5GB - 1.8GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.team/index.php?/forums/topic/167698-makal-2022-malayalam-true-web-dl-1080p-720p-avc-8gb-45gb-35gb-25gb-18gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=333909)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
