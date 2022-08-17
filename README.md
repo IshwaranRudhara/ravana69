@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Boys S01 &amp; S02  &lpar;2019-20&rpar; 1080p 10bit HEVC [Hindi + Tamil + Telugu + English] DD 5.1 &lpar;192kbps&rpar; - [6.5GB + 7GB G-DRIVE] Ninja 360 Encodes](https://www.1tamilmv.team/index.php?/forums/topic/105393-boys-s01-s02-2019-20-1080p-10bit-hevc-hindi-tamil-telugu-english-dd-51-192kbps-65gb-7gb-g-drive-ninja-360-encodes/&do=findComment&comment=333905)
+- [Thalattu Padava &lpar;1990&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.5GB - GDRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167695-thalattu-padava-1990tamil480phdtvx264aac20-15gb-gdrive/&do=findComment&comment=333904)
 - [Bengal Tiger &lpar;2015&rpar; 1080p WEB-DL [Telugu + Hindi + Tamil] DD 5.1 &lpar;192kbps&rpar; Esubs - [8.6GB + 4.3GB G-DRIVE] - Ninja 360](https://www.1tamilmv.team/index.php?/forums/topic/111200-bengal-tiger-2015-1080p-web-dl-telugu-hindi-tamil-dd-51-192kbps-esubs-86gb-43gb-g-drive-ninja-360/&do=findComment&comment=333903)
 - [Maayavan &lpar;2017&rpar; AMZN - WEB-DL - 1080p - Tamil - M4A - x264 - 7GB - MSub](https://www.1tamilmv.team/index.php?/forums/topic/167694-maayavan-2017-amzn-web-dl-1080p-tamil-m4a-x264-7gb-msub/&do=findComment&comment=333902)
 - [War &lpar;2019&rpar; AMZN - WEB-DL - 1080p - Tamil - DDP5.1 - x264 - 11GB - MSub](https://www.1tamilmv.team/index.php?/forums/topic/167693-war-2019-amzn-web-dl-1080p-tamil-ddp51-x264-11gb-msub/&do=findComment&comment=333901)
-- [Tamizh Padam 2 &lpar;2018&rpar; AMZN - WEB-DL - 1080p - Tamil - DDP5.1 - H.264 - 8GB - MSub](https://www.1tamilmv.team/index.php?/forums/topic/167692-tamizh-padam-2-2018-amzn-web-dl-1080p-tamil-ddp51-h264-8gb-msub/&do=findComment&comment=333900)
-- [Hero &lpar;2019&rpar; AMZN - WEB-DL - 1080p - Tamil - DDP5.1 - H.264 - 9GB - ESub](https://www.1tamilmv.team/index.php?/forums/topic/167691-hero-2019-amzn-web-dl-1080p-tamil-ddp51-h264-9gb-esub/&do=findComment&comment=333899)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
