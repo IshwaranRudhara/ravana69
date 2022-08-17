@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ee Rojullo &lpar;2012&rpar; Telugu AMZN WEB-DL - [1080p-8GB-5GB-2.7GB / 720p-1.4GB / 576p-700MB / 480p-400MB] - AVC - [DD+2.0 - 224kbps] - Esubs - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167674-ee-rojullo-2012-telugu-amzn-web-dl-1080p-8gb-5gb-27gb-720p-14gb-576p-700mb-480p-400mb-avc-dd20-224kbps-esubs-gdrivelinks/&do=findComment&comment=333880)
+- [Top Gun: Maverick &lpar;2022&rpar; HC IMAX/1080p WEB-DL H264 AAC 2.0  - UNTOUCHED - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167673-top-gun-maverick-2022-hc-imax1080p-web-dl-h264-aac-20-untouched-grive/&do=findComment&comment=333879)
 - [winner &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167645-winner-2003-tamil-true-web-dl-1080p-720p-avc-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=333878)
 - [Jiivi &lpar;2019&rpar; Tamil Proper TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 512Kbps&rpar; - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167665-jiivi-2019-tamil-proper-true-web-dl-1080p-720p-avc-dd51-512kbps-26gb-14gb-800mb-x264-700mb-400mb/&do=findComment&comment=333877)
 - [The Punisher Season 01-02 English  720p 10bit WEBRip 2CH x265 HEVC -PSA](https://www.1tamilmv.team/index.php?/forums/topic/167672-the-punisher-season-01-02-english-720p-10bit-webrip-2ch-x265-hevc-psa/&do=findComment&comment=333876)
-- [Luke Cage Season 01 -02 All Episode English 720p HEVC](https://www.1tamilmv.team/index.php?/forums/topic/167671-luke-cage-season-01-02-all-episode-english-720p-hevc/&do=findComment&comment=333875)
-- [Mersal &lpar;2017&rpar; BluRay Original Audios - [Tamil - Telugu - Hindi - Malayalam - [2160p 4K - 10GB - 5.5GB] [1080p - 38GB - 6.7GB - 6GB - 4.5GB - 3.7GB - 3GB - 2GB - 1.9GB - 1.8GB][720p - 1.8GB - 1.4GB - 900MB - 800MB] - ESubs](https://www.1tamilmv.team/index.php?/forums/topic/167591-mersal-2017-bluray-original-audios-tamil-telugu-hindi-malayalam-2160p-4k-10gb-55gb-1080p-38gb-67gb-6gb-45gb-37gb-3gb-2gb-19gb-18gb720p-18gb-14gb-900mb-800mb-esubs/&do=findComment&comment=333874)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
