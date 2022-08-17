@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [winner &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167645-winner-2003-tamil-true-web-dl-1080p-720p-avc-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=333868)
-- [Jiivi &lpar;2019&rpar; Tamil Proper TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 512Kbps&rpar; - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167665-jiivi-2019-tamil-proper-true-web-dl-1080p-720p-avc-dd51-512kbps-26gb-14gb-800mb-x264-700mb-400mb/&do=findComment&comment=333867)
-- [Krrish &lpar;2006&rpar; Blu-Ray-Telugu &lpar; Dolby Digital® 5.1 - 448Kbps&rpar;+ Hindi &lpar;DTS HDMA 5.1&rpar; - [1080p - 14.5GB - 9GB - 6GB - 4GB - 2.5GB - 1.6GB | 720p - 1.4GB - 900MB | x264 - 700MB - 400MB - 250MB] + ESub](https://www.1tamilmv.team/index.php?/forums/topic/104367-krrish-2006-blu-ray-telugu-dolby-digital%C2%AE-51-448kbps-hindi-dts-hdma-51-1080p-145gb-9gb-6gb-4gb-25gb-16gb-720p-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=333866)
-- [The Northman &lpar;2022&rpar; BluRay 480p,720P,1080P &amp; 2160P Hindi English AAC2.0 ESub x264- SF  [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167664-the-northman-2022-bluray-480p720p1080p-2160p-hindi-english-aac20-esub-x264-sf%C2%A0-gdrive/&do=findComment&comment=333865)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.team/index.php?/forums/topic/167638-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=333864)
+- [winner &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167645-winner-2003-tamil-true-web-dl-1080p-720p-avc-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=333878)
+- [Jiivi &lpar;2019&rpar; Tamil Proper TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 512Kbps&rpar; - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.team/index.php?/forums/topic/167665-jiivi-2019-tamil-proper-true-web-dl-1080p-720p-avc-dd51-512kbps-26gb-14gb-800mb-x264-700mb-400mb/&do=findComment&comment=333877)
+- [The Punisher Season 01-02 English  720p 10bit WEBRip 2CH x265 HEVC -PSA](https://www.1tamilmv.team/index.php?/forums/topic/167672-the-punisher-season-01-02-english-720p-10bit-webrip-2ch-x265-hevc-psa/&do=findComment&comment=333876)
+- [Luke Cage Season 01 -02 All Episode English 720p HEVC](https://www.1tamilmv.team/index.php?/forums/topic/167671-luke-cage-season-01-02-all-episode-english-720p-hevc/&do=findComment&comment=333875)
+- [Mersal &lpar;2017&rpar; BluRay Original Audios - [Tamil - Telugu - Hindi - Malayalam - [2160p 4K - 10GB - 5.5GB] [1080p - 38GB - 6.7GB - 6GB - 4.5GB - 3.7GB - 3GB - 2GB - 1.9GB - 1.8GB][720p - 1.8GB - 1.4GB - 900MB - 800MB] - ESubs](https://www.1tamilmv.team/index.php?/forums/topic/167591-mersal-2017-bluray-original-audios-tamil-telugu-hindi-malayalam-2160p-4k-10gb-55gb-1080p-38gb-67gb-6gb-45gb-37gb-3gb-2gb-19gb-18gb720p-18gb-14gb-900mb-800mb-esubs/&do=findComment&comment=333874)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
