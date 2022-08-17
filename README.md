@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Businessman &lpar;2012&rpar; Tamil Dubbed SUN-NXT 1080p WEB-DL [DD+5.1 &lpar;192kbps&rpar; &amp; AAC 2.0] - [4.5GB G-DRIVE] - Ninja 360](https://www.1tamilmv.team/index.php?/forums/topic/150531-businessman-2012-tamil-dubbed-sun-nxt-1080p-web-dl-dd51-192kbps-aac-20-45gb-g-drive-ninja-360/&do=findComment&comment=333885)
+- [Dua Lipa - New Rules | TIDAL 1080P | DD5.1 + DTSHD-MA 5.1 &lpar;Lossless FLAC Upmix&rpar; | 328MB](https://www.1tamilmv.team/index.php?/forums/topic/167678-dua-lipa-new-rules-tidal-1080p-dd51-dtshd-ma-51-lossless-flac-upmix-328mb/&do=findComment&comment=333884)
 - [Kalavar King &lpar;2010&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167677-kalavar-king-2010-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-700mb-240p-450mb-avc-aac-gdrivelinks/&do=findComment&comment=333883)
 - [KAALAPANI &lpar;1996&rpar; Telugu SunNxt TRUE WEB-DL &amp; HDRips - [1080p-2GB / 720p-1GB / 576p-500MB / 480p-1.6GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167676-kaalapani-1996-telugu-sunnxt-true-web-dl-hdrips-1080p-2gb-720p-1gb-576p-500mb-480p-16gb-avc-aac-gdrivelinks/&do=findComment&comment=333882)
 - [ESHWAR ALLA &lpar;2001&rpar; Telugu SunNxt WEB-DL &amp; HDRips - [1080p-2GB / 720p-1GB / 576p-500MB / 480p-1.7GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167675-eshwar-alla-2001-telugu-sunnxt-web-dl-hdrips-1080p-2gb-720p-1gb-576p-500mb-480p-17gb-avc-aac-gdrivelinks/&do=findComment&comment=333881)
-- [Ee Rojullo &lpar;2012&rpar; Telugu AMZN WEB-DL - [1080p-8GB-5GB-2.7GB / 720p-1.4GB / 576p-700MB / 480p-400MB] - AVC - [DD+2.0 - 224kbps] - Esubs - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167674-ee-rojullo-2012-telugu-amzn-web-dl-1080p-8gb-5gb-27gb-720p-14gb-576p-700mb-480p-400mb-avc-dd20-224kbps-esubs-gdrivelinks/&do=findComment&comment=333880)
-- [Top Gun: Maverick &lpar;2022&rpar; HC IMAX/1080p WEB-DL H264 AAC 2.0  - UNTOUCHED - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167673-top-gun-maverick-2022-hc-imax1080p-web-dl-h264-aac-20-untouched-grive/&do=findComment&comment=333879)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
