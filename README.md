@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Businessman &lpar;2012&rpar; Tamil Dubbed SUN-NXT 1080p WEB-DL [DD+5.1 &lpar;192kbps&rpar; &amp; AAC 2.0] - [4.5GB G-DRIVE] - Ninja 360](https://www.1tamilmv.team/index.php?/forums/topic/150531-businessman-2012-tamil-dubbed-sun-nxt-1080p-web-dl-dd51-192kbps-aac-20-45gb-g-drive-ninja-360/&do=findComment&comment=333885)
-- [Dua Lipa - New Rules | TIDAL 1080P | DD5.1 + DTSHD-MA 5.1 &lpar;Lossless FLAC Upmix&rpar; | 328MB](https://www.1tamilmv.team/index.php?/forums/topic/167678-dua-lipa-new-rules-tidal-1080p-dd51-dtshd-ma-51-lossless-flac-upmix-328mb/&do=findComment&comment=333884)
-- [Kalavar King &lpar;2010&rpar; Telugu JC TRUE WEB-DL - [1080p-8GB-4GB / 720p-1.3GB / 480p-900MB / 360p-700MB / 240p-450MB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167677-kalavar-king-2010-telugu-jc-true-web-dl-1080p-8gb-4gb-720p-13gb-480p-900mb-360p-700mb-240p-450mb-avc-aac-gdrivelinks/&do=findComment&comment=333883)
-- [KAALAPANI &lpar;1996&rpar; Telugu SunNxt TRUE WEB-DL &amp; HDRips - [1080p-2GB / 720p-1GB / 576p-500MB / 480p-1.6GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167676-kaalapani-1996-telugu-sunnxt-true-web-dl-hdrips-1080p-2gb-720p-1gb-576p-500mb-480p-16gb-avc-aac-gdrivelinks/&do=findComment&comment=333882)
-- [ESHWAR ALLA &lpar;2001&rpar; Telugu SunNxt WEB-DL &amp; HDRips - [1080p-2GB / 720p-1GB / 576p-500MB / 480p-1.7GB] - AVC - AAC - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167675-eshwar-alla-2001-telugu-sunnxt-web-dl-hdrips-1080p-2gb-720p-1gb-576p-500mb-480p-17gb-avc-aac-gdrivelinks/&do=findComment&comment=333881)
+- [Jilla &lpar;2014&rpar; Tamil TRUE HD - AVC / DD5.1 / DD5.1 / DDP5.1  - x264/x265 - HEVC - [#2160p #4K - 14.7GB] - [#1080P - 11.3GB - 9.4GB - 7.6 GB - 6.4GB - 2GB - 1.3GB - 1.1GB - 950MB] - [#720p - 1.4GB - 1GB - 980MB - 700MB] - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167688-jilla-2014-tamil-true-hd-avc-dd51-dd51-ddp51-x264x265-hevc-2160p-4k-147gb-1080p-113gb-94gb-76-gb-64gb-2gb-13gb-11gb-950mb-720p-14gb-1gb-980mb-700mb-google-drive/&do=findComment&comment=333895)
+- [Marina &lpar;2012&rpar; Tamil 1080p HS - WEB-DL - x264 - DD5.1&lpar;384Kbps&rpar;+ AAC - 4.3GB.mkv G - DRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167687-marina-2012-tamil-1080p-hs-web-dl-x264-dd51384kbps-aac-43gbmkv-g-drive/&do=findComment&comment=333894)
+- [Thani_Oruvan_2015_Tamil_ITunes_720p_HDRip_AC3.mkv 1.5 GB G- DRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167686-thani_oruvan_2015_tamil_itunes_720p_hdrip_ac3mkv-15-gb-g-drive/&do=findComment&comment=333893)
+- [THUPPAKKI &lpar;2012&rpar;.[1080P.DIRECTOR&#39;S.CUT.[BD50].UNTOUCHED.38GB.ESUBS].m2ts](https://www.1tamilmv.team/index.php?/forums/topic/167685-thuppakki-20121080pdirectorscutbd50untouched38gbesubsm2ts/&do=findComment&comment=333892)
+- [Ethir Neechal &lpar;2013&rpar; Tamil 1080p - AMZN - TRUE - WEB-DL - DDP2.0 - ESub - 6.1GB.mkv G - DRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167684-ethir-neechal-2013-tamil-1080p-amzn-true-web-dl-ddp20-esub-61gbmkv-g-drive/&do=findComment&comment=333891)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
