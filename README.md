@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Spider-Man &lpar;2002&rpar; BluRay Multi 5.1 ESubs - 2160p [HDR] | 1080p | 720p - 22.1 GB | 12.6 GB | 8.4 GB | 4.3 GB | 1.3 GB](https://www.1tamilmv.team/index.php?/forums/topic/167660-spider-man-2002-bluray-multi-51-esubs-2160p-hdr-1080p-720p-221-gb-126-gb-84-gb-43-gb-13-gb/&do=findComment&comment=333861)
+- [Sarkar &lpar;2018&rpar; Tamil TRUE HD - AVC / DD5.1 / DD5.1 / DDP5.1  - x264/x265 - [ #4K - 15.5GB] - [#1080P - 9.1GB - 4.1GB - 3.6GB - 1.3GB] - [#720p - 2GB - 1.4GB - 800MB] - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167662-sarkar-2018-tamil-true-hd-avc-dd51-dd51-ddp51-x264x265-4k-155gb-1080p-91gb-41gb-36gb-13gb-720p-2gb-14gb-800mb-google-drive/&do=findComment&comment=333860)
 - [PRIYAMANAVALE 2000 TAMIL MOVIE- ENNAVO ENNAVO VIDEO SONG SUN NET HD1080P WITH REMASTERD 5.1 DTS &amp; 2.0 STEREO.](https://www.1tamilmv.team/index.php?/forums/topic/167661-priyamanavale-2000-tamil-movie-ennavo-ennavo-video-song-sun-net-hd1080p-with-remasterd-51-dts-20-stereo/&do=findComment&comment=333859)
 - [Spider-Man &lpar;2002&rpar; BluRay Multi 5.1 ESubs - 2160p [HDR] | 1080p | 720p - 22.1 GB | 12.6 GB | 8.4 GB | 4.3 GB | 1.3 GB](https://www.1tamilmv.team/index.php?/forums/topic/167660-spider-man-2002-bluray-multi-51-esubs-2160p-hdr-1080p-720p-221-gb-126-gb-84-gb-43-gb-13-gb/&do=findComment&comment=333858)
 - [MINNALE 2001 TAMIL MOVIE COMPLETE VIDEO SONGS TRU HD1080P WITH 5.1 DTS.](https://www.1tamilmv.team/index.php?/forums/topic/167522-minnale-2001-tamil-movie-complete-video-songs-tru-hd1080p-with-51-dts/&do=findComment&comment=333857)
-- [Thiruchitrambalam &lpar;2022&rpar; Complete Album - An Anirudh Ravichander Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 213 MB | 111 MB | 37 MB | 15 MB](https://www.1tamilmv.team/index.php?/forums/topic/167659-thiruchitrambalam-2022-complete-album-an-anirudh-ravichander-musical-flac-24bit16bit-mp3-320kbps128kbps-213-mb-111-mb-37-mb-15-mb/&do=findComment&comment=333856)
-- [The Boys  &lpar;2022&rpar; S03 &lpar;01-08&rpar; AMZN WEB-DL Original Audios - &lpar;Tamil + Telugu + Hindi + English&rpar; - [#2160p #4K - 58GB] - [#1080p - 38GB - 22GB] - [#720p - 22.3GB - 12GB - 3.7GB] - ESubs - Google Drive](https://www.1tamilmv.team/index.php?/forums/topic/167658-the-boys-2022-s03-01-08-amzn-web-dl-original-audios-tamil-telugu-hindi-english-2160p-4k-58gb-1080p-38gb-22gb-720p-223gb-12gb-37gb-esubs-google-drive/&do=findComment&comment=333855)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
