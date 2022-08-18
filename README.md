@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Manu &lpar;2018&rpar; Telugu - 1080p - NF WEBDL - [DDP 5.1 - 640kbps] - x264 - 4GB - [GDriveLinks]](https://www.1tamilmv.team/index.php?/forums/topic/167681-manu-2018-telugu-1080p-nf-webdl-ddp-51-640kbps-x264-4gb-gdrivelinks/&do=findComment&comment=333925)
-- [Odeya kannada movie](https://www.1tamilmv.team/index.php?/forums/topic/167706-odeya-kannada-movie/&do=findComment&comment=333924)
-- [Odeya&lpar;2019&rpar;-Kannada-2160p-4K-UHD-SDR-5.1Ch-HEVC-By-D.CRUGER--[5.9GB]](https://www.1tamilmv.team/index.php?/forums/topic/116446-odeya2019-kannada-2160p-4k-uhd-sdr-51ch-hevc-by-dcruger-59gb/&do=findComment&comment=333923)
-- [Makal &lpar;2022&rpar; Malayalam HQ HDRip - 1080p,720p,480p &amp; 360p - x264 - DD5.1  AAC 2.0 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167705-makal-2022-malayalam-hq-hdrip-1080p720p480p-360p-x264-dd51%C2%A0-aac-20-sf-gdrive/&do=findComment&comment=333922)
-- [Madonna - Frozen | 1080P | DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; | 386MB](https://www.1tamilmv.team/index.php?/forums/topic/167704-madonna-frozen-1080p-dd51-dtshdma51-lossless-flac-upmix-386mb/&do=findComment&comment=333921)
+- [Aksar.2006.1080p.AMZN.WEB-DL.H264.DDP.2.0.ESub - UNTOUCHED - GRIVE](https://www.1tamilmv.team/index.php?/forums/topic/167711-aksar20061080pamznweb-dlh264ddp20esub-untouched-grive/&do=findComment&comment=333931)
+- [Thiruchitrambalam &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167710-thiruchitrambalam-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333930)
+- [Thiruchitrambalam &lpar;2022&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 950MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.team/index.php?/forums/topic/167710-thiruchitrambalam-2022-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-950mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=333929)
+- [Naruto S01 Multi Audios [Tamil + Telugu + Malayalam + Hindi + English] 1080p - 720p BluRay x264 ESubs [Google Drive]](https://www.1tamilmv.team/index.php?/forums/topic/167709-naruto-s01-multi-audios-tamil-telugu-malayalam-hindi-english-1080p-720p-bluray-x264-esubs-google-drive/&do=findComment&comment=333928)
+- [Spice Girls - Viva Forever | 1080P | DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; | 203MB](https://www.1tamilmv.team/index.php?/forums/topic/167708-spice-girls-viva-forever-1080p-dd51-dtshdma51-lossless-flac-upmix-203mb/&do=findComment&comment=333927)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
