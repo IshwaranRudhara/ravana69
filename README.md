@@ -5,11 +5,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Makal &lpar;2022&rpar; Malayalam Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167702-makal-2022-malayalam-full-movie-watch-now-hq-for-free/&do=findComment&comment=333919)
-- [Gaalipata 2 &lpar;2022&rpar; Kannada Full Movie Watch Now HQ For Free](https://www.1tamilmv.team/index.php?/forums/topic/167701-gaalipata-2-2022-kannada-full-movie-watch-now-hq-for-free/&do=findComment&comment=333918)
-- [Apsara &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.1GB &amp; 650MB] - [x264 - 350MB]](https://www.1tamilmv.team/index.php?/forums/topic/167680-apsara-2022-malayalam-true-web-dl-1080p-720p-avc-11gb-650mb-x264-350mb/&do=findComment&comment=333917)
-- [Makal &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4GB - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.team/index.php?/forums/topic/167698-makal-2022-malayalam-true-web-dl-1080p-720p-avc-hevc-4gb-26gb-14gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=333916)
-- [Makal &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4GB - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.team/index.php?/forums/topic/167698-makal-2022-malayalam-true-web-dl-1080p-720p-avc-hevc-4gb-26gb-14gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=333915)
+- [Odeya kannada movie](https://www.1tamilmv.team/index.php?/forums/topic/167706-odeya-kannada-movie/&do=findComment&comment=333924)
+- [Odeya&lpar;2019&rpar;-Kannada-2160p-4K-UHD-SDR-5.1Ch-HEVC-By-D.CRUGER--[5.9GB]](https://www.1tamilmv.team/index.php?/forums/topic/116446-odeya2019-kannada-2160p-4k-uhd-sdr-51ch-hevc-by-dcruger-59gb/&do=findComment&comment=333923)
+- [Makal &lpar;2022&rpar; Malayalam HQ HDRip - 1080p,720p,480p &amp; 360p - x264 - DD5.1  AAC 2.0 - SF [Gdrive]](https://www.1tamilmv.team/index.php?/forums/topic/167705-makal-2022-malayalam-hq-hdrip-1080p720p480p-360p-x264-dd51%C2%A0-aac-20-sf-gdrive/&do=findComment&comment=333922)
+- [Madonna - Frozen | 1080P | DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; | 386MB](https://www.1tamilmv.team/index.php?/forums/topic/167704-madonna-frozen-1080p-dd51-dtshdma51-lossless-flac-upmix-386mb/&do=findComment&comment=333921)
+- [Spider-Man 2 &lpar;2004&rpar; BluRay Multi 5.1 MSub - 2160p [HDR] | 1080p | 720p - 23 GB | 13.3 GB | 9.4 GB | 4.5 GB | 1.3 GB](https://www.1tamilmv.team/index.php?/forums/topic/167703-spider-man-2-2004-bluray-multi-51-msub-2160p-hdr-1080p-720p-23-gb-133-gb-94-gb-45-gb-13-gb/&do=findComment&comment=333920)
 <!-- BLOG-POST-LIST:END -->
 
 # =====Spotify Playlist=====
